@@ -1,0 +1,68 @@
+# Jekyll Configuration for Bible Study Guide
+
+# Site settings
+title: Bible Study Guide
+description: >-
+  A comprehensive study guide covering all 66 books of the Bible with overviews,
+  themes, practical applications, and study resources.
+baseurl: "" # Leave empty if deploying to username.github.io/biblestudy
+url: "" # Will be set automatically by GitHub Pages
+
+# Build settings
+markdown: kramdown
+theme: minima
+plugins:
+  - jekyll-feed
+  - jekyll-seo-tag
+  - jekyll-sitemap
+
+# Exclude files from processing
+exclude:
+  - .git
+  - .gitignore
+  - Gemfile
+  - Gemfile.lock
+  - node_modules
+  - vendor
+  - README.md
+  - DEPLOYMENT.md
+
+# Collections
+collections:
+  old_testament:
+    output: true
+    permalink: /old-testament/:name/
+  new_testament:
+    output: true
+    permalink: /new-testament/:name/
+
+# Defaults
+defaults:
+  - scope:
+      path: ""
+      type: "pages"
+    values:
+      layout: "default"
+  - scope:
+      path: "old-testament"
+    values:
+      layout: "book"
+      testament: "Old Testament"
+  - scope:
+      path: "new-testament"
+    values:
+      layout: "book"
+      testament: "New Testament"
+
+# Navigation
+navigation:
+  - title: Home
+    url: /
+  - title: Old Testament
+    url: /old-testament/
+  - title: New Testament
+    url: /new-testament/
+  - title: Quick Reference
+    url: /quick-reference/
+  - title: Study Resources
+    url: /study-resources/

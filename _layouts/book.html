@@ -1,0 +1,35 @@
+---
+layout: default
+---
+
+<nav class="breadcrumb">
+    <a href="/">Home</a>
+    <span class="separator">›</span>
+    <a href="{{ page.testament | downcase | replace: ' ', '-' }}/">{{ page.testament }}</a>
+    <span class="separator">›</span>
+    <span>{{ page.title }}</span>
+</nav>
+
+<article class="book-content">
+    <header class="book-header">
+        <h1>{{ page.title }}</h1>
+    </header>
+
+    {{ content }}
+
+    <div class="book-navigation">
+        {% if page.previous %}
+        <a href="{{ page.previous.url | relative_url }}" class="nav-button prev">
+            ← Previous: {{ page.previous.title }}
+        </a>
+        {% endif %}
+
+        {% if page.next %}
+        <a href="{{ page.next.url | relative_url }}" class="nav-button next">
+            Next: {{ page.next.title }} →
+        </a>
+        {% endif %}
+    </div>
+</article>
+
+<button id="back-to-top" title="Back to top">↑</button>

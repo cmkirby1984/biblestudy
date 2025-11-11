@@ -1,0 +1,43 @@
+<header class="site-header">
+    <div class="header-content">
+        <div class="logo">
+            <a href="/">
+                <span class="logo-icon">📖</span>
+                <span class="logo-text">{{ site.title }}</span>
+            </a>
+        </div>
+
+        <div class="header-actions">
+            <div class="search-container">
+                <input type="search" id="search-input" placeholder="Search..." aria-label="Search">
+                <button id="search-button" aria-label="Search">🔍</button>
+            </div>
+
+            <button id="theme-toggle" aria-label="Toggle dark mode">
+                <span class="theme-icon">🌙</span>
+            </button>
+
+            <button id="mobile-menu-toggle" class="mobile-menu-toggle" aria-label="Toggle menu">
+                <span></span>
+                <span></span>
+                <span></span>
+            </button>
+        </div>
+    </div>
+
+    <nav class="main-nav">
+        <ul>
+            {% for item in site.navigation %}
+            <li><a href="{{ item.url | relative_url }}" {% if page.url == item.url %}class="active"{% endif %}>{{ item.title }}</a></li>
+            {% endfor %}
+        </ul>
+    </nav>
+</header>
+
+<div id="search-results" class="search-results hidden">
+    <div class="search-results-header">
+        <h3>Search Results</h3>
+        <button id="close-search" aria-label="Close search">×</button>
+    </div>
+    <div id="search-results-list"></div>
+</div>
