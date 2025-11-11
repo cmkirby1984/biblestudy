@@ -11,6 +11,7 @@ url: "" # Will be set automatically by GitHub Pages
 # Build settings
 markdown: kramdown
 theme: minima
+permalink: pretty
 plugins:
   - jekyll-feed
   - jekyll-seo-tag
