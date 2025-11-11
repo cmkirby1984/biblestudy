@@ -9,6 +9,42 @@
 **Purpose:** To show how Israel transitioned to kingship and how God chooses leaders after His own heart
 **Genre:** Historical narrative with prophetic elements
 
+## One-Sentence Summary
+
+Israel transitions from judges to monarchy through Samuel's prophetic ministry, contrasting Saul's outward appearance and disobedience with David's humble heart devoted to God.
+
+## Book Structure
+
+1. **Samuel's Birth and Call** (Chapters 1-7)
+   - Hannah's prayer and Samuel's birth
+   - Eli's failed priesthood and Samuel's calling
+   - The ark captured and returned
+   - Samuel as judge and intercessor
+
+2. **Saul's Rise and Reign** (Chapters 8-15)
+   - Israel demands a king
+   - Saul's anointing and early victories
+   - Saul's disobedience and rejection
+   - God seeks "a man after his own heart"
+
+3. **David's Rise and Saul's Decline** (Chapters 16-31)
+   - David anointed and serves in Saul's court
+   - David defeats Goliath
+   - Saul's jealousy and pursuit of David
+   - David spares Saul's life repeatedly
+   - Saul's death at Mount Gilboa
+
+## Key Verses
+
+- **1 Samuel 16:7** - "But the LORD said to Samuel, 'Do not consider his appearance or his height, for I have rejected him. The LORD does not look at the things people look at. People look at the outward appearance, but the LORD looks at the heart.'"
+  - *Significance:* This foundational principle explains God's choice of David over Saul and remains crucial for understanding godly leadership.
+
+- **1 Samuel 15:22-23** - "Does the LORD delight in burnt offerings and sacrifices as much as in obeying the LORD? To obey is better than sacrifice, and to heed is better than the fat of rams. For rebellion is like the sin of divination, and arrogance like the evil of idolatry."
+  - *Significance:* Samuel's rebuke to Saul reveals that God values obedience over religious activity and partial obedience is rebellion.
+
+- **1 Samuel 17:47** - "All those gathered here will know that it is not by sword or spear that the LORD saves; for the battle is the LORD's, and he will give all of you into our hands."
+  - *Significance:* David's faith before Goliath demonstrates trust in God's power rather than human strength.
+
 ## Key Themes & Messages
 
 ### Major Themes

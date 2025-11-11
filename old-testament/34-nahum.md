@@ -9,6 +9,30 @@
 **Purpose:** To announce God's judgment on Assyria (Nineveh) and to comfort Judah with promise of deliverance
 **Genre:** Prophetic oracle; poetry
 
+## One-Sentence Summary
+
+God will judge cruel Assyria completely, bringing comfort to oppressed Judah and demonstrating no evil empire escapes divine justice.
+
+## Book Structure
+
+**Three Chapters of Judgment (Chapters 1-3)**
+- Chapter 1: God's character - jealous, avenging, powerful; refuge for His people
+- Chapter 2: Detailed prophecy of Nineveh's fall; vivid battle imagery
+- Chapter 3: Reasons for judgment - violence, lies, cruelty; complete destruction assured
+
+*Note: The entire book focuses on Nineveh's certain doom, contrasting sharply with Jonah's account of their earlier repentance.*
+
+## Key Verses
+
+**Nahum 1:7** - "The LORD is good, a refuge in times of trouble. He cares for those who trust in him."
+*Significance:* Balances God's judgment with His protective care - He is both avenging toward enemies and refuge for His people.
+
+**Nahum 1:2-3** - "The LORD is a jealous and avenging God; the LORD takes vengeance and is filled with wrath. The LORD takes vengeance on his foes and vents his wrath against his enemies. The LORD is slow to anger but great in power; the LORD will not leave the guilty unpunished."
+*Significance:* Reveals God's justice - though patient, He will not allow wickedness to go unpunished forever; divine wrath is real and certain.
+
+**Nahum 1:15** - "Look, there on the mountains, the feet of one who brings good news, who proclaims peace! Celebrate your festivals, Judah, and fulfill your vows. No more will the wicked invade you; they will be completely destroyed."
+*Significance:* Promise of deliverance brings good news to the oppressed - later applied to gospel proclamation in Romans 10:15.
+
 ## Key Themes & Messages
 
 ### Major Themes

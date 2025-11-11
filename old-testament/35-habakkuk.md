@@ -9,6 +9,30 @@
 **Purpose:** To address the problem of evil and God's justice through dialogue between prophet and God
 **Genre:** Prophetic dialogue; complaint and theodicy; concluding psalm
 
+## One-Sentence Summary
+
+The righteous live by faith, trusting God's character and ultimate justice even when evil seems to prosper and circumstances contradict His goodness.
+
+## Book Structure
+
+**Dialogue Between Prophet and God (Chapters 1-3)**
+- Chapter 1:1-4: Habakkuk's first complaint - Why does God tolerate injustice in Judah?
+- Chapter 1:5-11: God's answer - He's raising Babylon to judge Judah
+- Chapter 1:12-2:1: Habakkuk's second complaint - How can holy God use wicked Babylon?
+- Chapter 2:2-20: God's answer - The righteous live by faith; Babylon will also be judged
+- Chapter 3: Habakkuk's prayer - From fear to faith and worship despite circumstances
+
+## Key Verses
+
+**Habakkuk 2:4** - "See, the enemy is puffed up; his desires are not upright—but the righteous person will live by his faithfulness."
+*Significance:* Central principle quoted three times in New Testament - faith/faithfulness is foundation for relationship with God, not works or circumstances.
+
+**Habakkuk 3:17-18** - "Though the fig tree does not bud and there are no grapes on the vines, though the olive crop fails and the fields produce no food, though there are no sheep in the pen and no cattle in the stalls, yet I will rejoice in the LORD, I will be joyful in God my Savior."
+*Significance:* Ultimate expression of faith - joy rooted in God Himself, not circumstances or blessings; worship transcends visible evidence.
+
+**Habakkuk 2:14** - "For the earth will be filled with the knowledge of the glory of the LORD as the waters cover the sea."
+*Significance:* Promise of God's universal reign and glory - hope beyond present evil that sustains faith through dark times.
+
 ## Key Themes & Messages
 
 ### Major Themes

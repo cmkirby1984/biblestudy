@@ -9,6 +9,57 @@
 **Purpose:** To teach practical wisdom for living skillfully in God's world
 **Genre:** Wisdom literature; proverbial sayings, poetry, and instruction
 
+## One-Sentence Summary
+
+Practical wisdom for godly living begins with fearing the LORD and applies to every area of life including work, speech, relationships, and money.
+
+## Book Structure
+
+1. **Prologue: The Purpose and Foundation** (1:1-7)
+   - Statement of purpose
+   - "The fear of the LORD is the beginning of knowledge"
+
+2. **Wisdom's Call to Young Men** (1:8-9:18)
+   - Parental instructions
+   - Warnings against folly and wickedness
+   - Personification of Wisdom and Folly
+
+3. **Proverbs of Solomon** (10:1-22:16)
+   - 375 individual sayings
+   - Covering practical life topics
+   - Contrast between wise and foolish
+
+4. **Sayings of the Wise** (22:17-24:34)
+   - Thirty sayings collection
+   - Additional wise sayings
+
+5. **More Proverbs of Solomon** (25:1-29:27)
+   - Collected by Hezekiah's men
+   - Varied topics and themes
+
+6. **Sayings of Agur** (30:1-33)
+   - Numerical sayings
+   - Observations about life
+
+7. **Sayings of King Lemuel** (31:1-9)
+   - Mother's instruction to a king
+   - Warnings about wine and women
+
+8. **The Wife of Noble Character** (31:10-31)
+   - Acrostic poem
+   - Model of wisdom embodied
+
+## Key Verses
+
+**Proverbs 1:7** - "The fear of the LORD is the beginning of knowledge, but fools despise wisdom and instruction."
+- *Significance:* The foundational principle of the entire book; true wisdom must start with reverent relationship to God.
+
+**Proverbs 3:5-6** - "Trust in the LORD with all your heart and lean not on your own understanding; in all your ways submit to him, and he will make your paths straight."
+- *Significance:* Calls for complete trust in God rather than self-reliance; promises divine guidance to those who acknowledge Him.
+
+**Proverbs 4:23** - "Above all else, guard your heart, for everything you do flows from it."
+- *Significance:* Emphasizes the priority of inner character; external actions reveal internal condition, so protect what shapes you.
+
 ## Key Themes & Messages
 
 ### Major Themes

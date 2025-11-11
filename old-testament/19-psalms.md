@@ -9,6 +9,50 @@
 **Purpose:** To provide divinely inspired prayers and songs for worship, expressing full range of human experience before God
 **Genre:** Hebrew poetry; hymns, laments, thanksgiving, wisdom, royal, and imprecatory psalms
 
+## One-Sentence Summary
+
+Israel's inspired hymnal providing prayers and songs for worship that express the full range of human emotions before a faithful and praiseworthy God.
+
+## Book Structure
+
+The Psalter is organized into five books, mirroring the structure of the Pentateuch:
+
+1. **Book I** (Psalms 1-41)
+   - Mostly Davidic psalms
+   - Focus on blessing and conflict
+   - Ends with doxology (41:13)
+
+2. **Book II** (Psalms 42-72)
+   - Psalms of Korah, Asaph, and David
+   - Themes of redemption and national worship
+   - Ends with doxology (72:18-19)
+
+3. **Book III** (Psalms 73-89)
+   - Mostly Asaph psalms
+   - Focus on sanctuary and covenant crises
+   - Ends with doxology (89:52)
+
+4. **Book IV** (Psalms 90-106)
+   - Mostly anonymous psalms
+   - God as refuge and King
+   - Ends with doxology (106:48)
+
+5. **Book V** (Psalms 107-150)
+   - Psalms of praise and David
+   - Celebration of God's word and works
+   - Ends with extended doxology (Psalms 146-150)
+
+## Key Verses
+
+**Psalm 1:1-2** - "Blessed is the one who does not walk in step with the wicked or stand in the way that sinners take or sit in the company of mockers, but whose delight is in the law of the LORD, and who meditates on his law day and night."
+- *Significance:* Opens the Psalter by establishing the two paths (righteous vs. wicked) and the foundation of blessing: delighting in God's Word.
+
+**Psalm 23:1** - "The LORD is my shepherd, I lack nothing."
+- *Significance:* The most beloved psalm captures God's personal care, guidance, and provision; expresses confident trust in God's goodness.
+
+**Psalm 119:105** - "Your word is a lamp for my feet, a light on my path."
+- *Significance:* From the longest psalm, this verse celebrates Scripture as God's gift to guide and illuminate our way through life.
+
 ## Key Themes & Messages
 
 ### Major Themes

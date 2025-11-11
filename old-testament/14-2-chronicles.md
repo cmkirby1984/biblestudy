@@ -9,6 +9,42 @@
 **Purpose:** To show pattern of blessing through faithfulness and judgment through apostasy, encouraging post-exilic obedience
 **Genre:** Historical narrative
 
+## One-Sentence Summary
+
+Solomon builds the glorious temple, but subsequent kings of Judah experience either blessing through seeking God or disaster through apostasy, ending in exile yet offering hope through Cyrus's decree.
+
+## Book Structure
+
+1. **Solomon's Temple and Glory** (Chapters 1-9)
+   - Solomon's wisdom and wealth
+   - Building and dedicating the temple
+   - God's glory fills the temple
+   - God's covenant promise: seek Me for blessing
+
+2. **Kings of Judah: Faithfulness and Apostasy** (Chapters 10-28)
+   - Rehoboam through Ahaz
+   - Pattern: seeking God brings blessing, forsaking Him brings judgment
+   - Reforming kings prosper (Asa, Jehoshaphat, Joash, Uzziah, Jotham)
+   - Wicked or compromising kings suffer consequences
+
+3. **Final Kings and Fall of Jerusalem** (Chapters 29-36)
+   - Hezekiah's reforms and deliverance
+   - Manasseh's wickedness
+   - Josiah's great reformation
+   - Final decline and Babylonian exile
+   - Hope: Cyrus's decree to rebuild temple
+
+## Key Verses
+
+- **2 Chronicles 7:14** - "If my people, who are called by my name, will humble themselves and pray and seek my face and turn from their wicked ways, then I will hear from heaven, and I will forgive their sin and will heal their land."
+  - *Significance:* God's promise provides the blueprint for revival and restoration, emphasizing humility, prayer, and repentance.
+
+- **2 Chronicles 16:9** - "For the eyes of the LORD range throughout the earth to strengthen those whose hearts are fully committed to him."
+  - *Significance:* God actively seeks to bless those who are wholeheartedly devoted to Him.
+
+- **2 Chronicles 20:15** - "Do not be afraid or discouraged because of this vast army. For the battle is not yours, but God's."
+  - *Significance:* Jehoshaphat's faith reminds believers that victory comes through trusting God rather than human strength.
+
 ## Key Themes & Messages
 
 ### Major Themes

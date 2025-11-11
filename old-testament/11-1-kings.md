@@ -9,6 +9,42 @@
 **Purpose:** To explain why the kingdom divided and how covenant unfaithfulness led to decline
 **Genre:** Historical narrative with prophetic elements
 
+## One-Sentence Summary
+
+Solomon's glorious reign and temple construction give way to idolatry and kingdom division, while Elijah confronts Baal worship in the increasingly apostate northern kingdom.
+
+## Book Structure
+
+1. **Solomon's Reign** (Chapters 1-11)
+   - Solomon's succession and wisdom
+   - Building and dedicating the temple
+   - International fame and prosperity
+   - Turning to idolatry through foreign wives
+   - Kingdom divided as judgment
+
+2. **The Divided Kingdom: Early Years** (Chapters 12-16)
+   - Rehoboam's folly splits the kingdom
+   - Jeroboam establishes golden calves in north
+   - Succession of evil kings in Israel
+   - Mixed record in Judah
+
+3. **Elijah's Ministry** (Chapters 17-22)
+   - Elijah confronts Ahab and Jezebel
+   - Mount Carmel contest with Baal prophets
+   - God's still small voice at Horeb
+   - Ahab's victories and ultimate death
+
+## Key Verses
+
+- **1 Kings 18:21** - "Elijah went before the people and said, 'How long will you waver between two opinions? If the LORD is God, follow him; but if Baal is God, follow him.' But the people said nothing."
+  - *Significance:* Elijah's challenge exposes the impossibility of serving both God and idols, demanding a decisive commitment.
+
+- **1 Kings 11:11** - "So the LORD said to Solomon, 'Since this is your attitude and you have not kept my covenant and my decrees, which I commanded you, I will most certainly tear the kingdom away from you and give it to one of your subordinates.'"
+  - *Significance:* Even great wisdom cannot substitute for covenant obedience; compromise leads to judgment.
+
+- **1 Kings 8:27** - "But will God really dwell on earth? The heavens, even the highest heaven, cannot contain you. How much less this temple I have built!"
+  - *Significance:* Solomon recognizes God's transcendence even while celebrating His immanent presence in the temple.
+
 ## Key Themes & Messages
 
 ### Major Themes

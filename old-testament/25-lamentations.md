@@ -9,6 +9,32 @@
 **Purpose:** To express grief over Jerusalem's fall, confess sin, and affirm hope in God's faithfulness
 **Genre:** Lament poetry; acrostic structure (alphabetical arrangement)
 
+## One-Sentence Summary
+
+Mourning Jerusalem's destruction with raw grief while clinging to God's unfailing faithfulness and mercies that are new every morning.
+
+## Book Structure
+
+**Five Lament Poems (Chapters 1-5)**
+- Chapter 1: Jerusalem personified as grieving widow; loneliness and desolation
+- Chapter 2: God's fierce anger described; destruction of temple and city
+- Chapter 3: Personal lament turns to hope in God's compassion (center of book)
+- Chapter 4: Contrast between past glory and present horror; starvation and suffering
+- Chapter 5: Corporate prayer for restoration and renewal
+
+*Note: Chapters 1-4 are acrostic poems (22 verses each, following Hebrew alphabet); Chapter 5 has 22 verses but is not acrostic.*
+
+## Key Verses
+
+**Lamentations 3:22-23** - "Because of the LORD's great love we are not consumed, for his compassions never fail. They are new every morning; great is your faithfulness."
+*Significance:* The theological center of the book - even in deepest suffering, God's character remains constant, providing fresh mercies daily and grounds for hope.
+
+**Lamentations 3:25-26** - "The LORD is good to those whose hope is in him, to the one who seeks him; it is good to wait quietly for the salvation of the LORD."
+*Significance:* Teaches patient faith in suffering - waiting on God's timing with confident hope in His goodness despite present devastation.
+
+**Lamentations 5:19-21** - "You, LORD, reign forever; your throne endures from generation to generation... Restore us to yourself, LORD, that we may return; renew our days as of old."
+*Significance:* Final appeal anchored in God's eternal reign, expressing longing for restoration while acknowledging God's sovereignty over history.
+
 ## Key Themes & Messages
 
 ### Major Themes

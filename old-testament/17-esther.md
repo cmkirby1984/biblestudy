@@ -9,6 +9,41 @@
 **Purpose:** To explain origin of Purim festival and show God's providential care for His people
 **Genre:** Historical narrative (with some features of novella)
 
+## One-Sentence Summary
+
+Jewish orphan Esther becomes Persian queen and courageously risks her life to save her people from genocide, revealing God's hidden providence protecting His people in exile.
+
+## Book Structure
+
+1. **Esther Becomes Queen** (Chapters 1-2)
+   - Queen Vashti deposed
+   - Esther chosen as new queen
+   - Mordecai uncovers assassination plot
+
+2. **Haman's Evil Plot** (Chapters 3-5)
+   - Haman's promotion and Mordecai's refusal to bow
+   - Decree to destroy all Jews
+   - Esther's decision: "If I perish, I perish"
+   - Esther's banquets and strategy
+
+3. **God's Reversal** (Chapters 6-10)
+   - King honors Mordecai instead of Haman
+   - Haman hanged on his own gallows
+   - Jews granted right to defend themselves
+   - Victory and celebration
+   - Purim festival established
+
+## Key Verses
+
+- **Esther 4:14** - "For if you remain silent at this time, relief and deliverance for the Jews will arise from another place, but you and your father's family will perish. And who knows but that you have come to your royal position for such a time as this?"
+  - *Significance:* Mordecai's challenge reveals that God places His people strategically for His purposes, requiring courage to act.
+
+- **Esther 4:16** - "Go, gather together all the Jews who are in Susa, and fast for me. Do not eat or drink for three days, night or day. I and my attendants will fast as you do. When this is done, I will go to the king, even though it is against the law. And if I perish, I perish."
+  - *Significance:* Esther's courageous decision to risk everything exemplifies sacrificial leadership for God's people.
+
+- **Esther 9:1** - "On the thirteenth day of the twelfth month, the month of Adar, the edict commanded by the king was to be carried out. On this day the enemies of the Jews had hoped to overpower them, but now the tables were turned and the Jews got the upper hand over those who hated them."
+  - *Significance:* God's reversal of evil plots demonstrates His sovereignty and faithfulness to protect His people.
+
 ## Key Themes & Messages
 
 ### Major Themes

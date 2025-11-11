@@ -9,6 +9,30 @@
 **Purpose:** To explain the origins of the world, humanity, sin, and God's chosen people; to show God as Creator and covenant-keeper
 **Genre:** Historical narrative, with genealogies and some poetry
 
+## One-Sentence Summary
+
+God creates the world and humanity, then calls Abraham to establish a covenant people through whom all nations will be blessed.
+
+## Book Structure
+
+**Part 1: Primeval History (chapters 1-11)**
+- Creation of the world and humanity (1-2)
+- The fall and spread of sin (3-5)
+- God's judgment through the flood (6-9)
+- Tower of Babel and dispersion of nations (10-11)
+
+**Part 2: The Patriarchs (chapters 12-50)**
+- Abraham: The covenant established (12-25)
+- Isaac and family conflict (26-27)
+- Jacob: The family that becomes Israel (28-36)
+- Joseph: God's providence preserves His people (37-50)
+
+## Key Verses
+
+- **Genesis 1:1** - "In the beginning God created the heavens and the earth." (God's sovereignty over all creation)
+- **Genesis 12:2-3** - "I will make you into a great nation, and I will bless you... and all peoples on earth will be blessed through you." (The Abrahamic covenant and mission)
+- **Genesis 50:20** - "You intended to harm me, but God intended it for good to accomplish what is now being done, the saving of many lives." (God's sovereign providence)
+
 ## Key Themes & Messages
 
 ### Major Themes

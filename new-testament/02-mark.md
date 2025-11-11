@@ -9,6 +9,47 @@
 **Purpose:** To present Jesus as the powerful Son of God and suffering Servant
 **Genre:** Gospel; theological biography with rapid narrative pace
 
+## One-Sentence Summary
+
+The powerful Son of God serves as a suffering Servant, demonstrating divine authority through mighty works while giving His life as a ransom for many.
+
+## Book Structure
+
+**I. Prologue: The Beginning of the Gospel (1:1-13)**
+- John the Baptist prepares the way
+- Jesus' baptism and temptation
+
+**II. The Galilean Ministry: Jesus' Power Revealed (1:14-8:26)**
+- Early ministry and calling disciples (1:14-3:6)
+- Growing popularity and opposition (3:7-6:6a)
+- Mission of the twelve and feeding miracles (6:6b-8:26)
+
+**III. The Journey to Jerusalem: The Way of the Cross (8:27-10:52)**
+- Peter's confession: "You are the Messiah" (8:27-30)
+- Three passion predictions and discipleship teaching (8:31-10:45)
+- Healing of blind Bartimaeus (10:46-52)
+
+**IV. The Jerusalem Ministry: Confrontation (11:1-13:37)**
+- Triumphal entry and temple cleansing (11:1-26)
+- Controversies with religious leaders (11:27-12:44)
+- Olivet Discourse (13:1-37)
+
+**V. The Passion and Resurrection (14:1-16:8)**
+- Last Supper and Gethsemane (14:1-52)
+- Trials, crucifixion, and death (14:53-15:47)
+- Empty tomb and resurrection (16:1-8)
+
+## Key Verses
+
+**Mark 1:1** - *"The beginning of the good news about Jesus the Messiah, the Son of God."*
+- **Significance:** Mark's opening declaration establishes Jesus' divine identity from the start, setting the theme for the entire Gospel.
+
+**Mark 8:29-31** - *"'But what about you?' he asked. 'Who do you say I am?' Peter answered, 'You are the Messiah.' Jesus warned them not to tell anyone about him. He then began to teach them that the Son of Man must suffer many things and be rejected... and that he must be killed and after three days rise again."*
+- **Significance:** The turning point of Mark's Gospel—Peter's confession is immediately followed by Jesus redefining messiahship as suffering servanthood.
+
+**Mark 10:45** - *"For even the Son of Man did not come to be served, but to serve, and to give his life as a ransom for many."*
+- **Significance:** The clearest statement of Jesus' mission in Mark—divine power expressed through sacrificial service, the heart of the Gospel message.
+
 ## Key Themes & Messages
 
 ### Major Themes

@@ -9,6 +9,43 @@
 **Purpose:** To encourage suffering believers and instruct them on living as exiles in hostile culture
 **Genre:** Epistle; pastoral encouragement
 
+## One-Sentence Summary
+
+Suffering believers are exiles on earth with a living hope in heaven, called to holy living and Christlike endurance in hostile environments.
+
+## Book Structure
+
+1. **Living Hope in Suffering (1:1-2:12)**
+   - Greeting and salvation (1:1-12)
+   - Call to holiness (1:13-2:3)
+   - Living stones and chosen people (2:4-12)
+
+2. **Submission and Suffering (2:13-4:6)**
+   - Submit to authorities (2:13-17)
+   - Suffering servants follow Christ's example (2:18-25)
+   - Wives and husbands (3:1-7)
+   - Blessing through suffering for righteousness (3:8-4:6)
+
+3. **Faithful Living in Last Days (4:7-5:14)**
+   - Love and spiritual gifts (4:7-11)
+   - Rejoice in fiery trials (4:12-19)
+   - Instructions for elders and all believers (5:1-11)
+   - Final greetings (5:12-14)
+
+## Key Verses
+
+**1 Peter 1:3-4** - "Praise be to the God and Father of our Lord Jesus Christ! In his great mercy he has given us new birth into a living hope through the resurrection of Jesus Christ from the dead, and into an inheritance that can never perish, spoil or fade. This inheritance is kept in heaven for you."
+
+*Significance:* Establishes the foundation of Christian hope—an eternal, secure inheritance that sustains believers through earthly trials.
+
+**1 Peter 2:23-24** - "When they hurled their insults at him, he did not retaliate; when he suffered, he made no threats. Instead, he entrusted himself to him who judges justly. 'He himself bore our sins' in his body on the cross, so that we might die to sins and live for righteousness; 'by his wounds you have been healed.'"
+
+*Significance:* Presents Christ's suffering as both example for believers and basis for salvation.
+
+**1 Peter 5:7** - "Cast all your anxiety on him because he cares for you."
+
+*Significance:* Offers profound comfort that God personally cares about believers' concerns and invites them to release their burdens to Him.
+
 ## Key Themes & Messages
 
 ### Major Themes

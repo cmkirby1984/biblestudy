@@ -9,6 +9,41 @@
 **Purpose:** To warn against false teachers and encourage spiritual growth while awaiting Christ's return
 **Genre:** Epistle; warning and exhortation
 
+## One-Sentence Summary
+
+Grow in godly character while guarding against false teachers, living expectantly for Christ's certain return and the coming judgment.
+
+## Book Structure
+
+1. **Growth in Grace and Knowledge (1:1-21)**
+   - Divine power and great promises (1:1-4)
+   - Qualities to add to faith (1:5-11)
+   - Peter's reminder and apostolic authority (1:12-21)
+
+2. **False Teachers and Their Judgment (2:1-22)**
+   - Warning about false teachers (2:1-3)
+   - Historical examples of judgment (2:4-10)
+   - Character and fate of false teachers (2:11-22)
+
+3. **The Day of the Lord (3:1-18)**
+   - Scoffers deny Christ's return (3:1-7)
+   - God's patience and coming judgment (3:8-10)
+   - Holy living in light of new creation (3:11-18)
+
+## Key Verses
+
+**2 Peter 1:5-7** - "For this very reason, make every effort to add to your faith goodness; and to goodness, knowledge; and to knowledge, self-control; and to self-control, perseverance; and to perseverance, godliness; and to godliness, mutual affection; and to mutual affection, love."
+
+*Significance:* Outlines the progressive development of Christian character that confirms genuine salvation and prevents spiritual ineffectiveness.
+
+**2 Peter 3:9** - "The Lord is not slow in keeping his promise, as some understand slowness. Instead he is patient with you, not wanting anyone to perish, but everyone to come to repentance."
+
+*Significance:* Explains the delay of Christ's return as divine patience, providing opportunity for salvation rather than indicating failure or absence.
+
+**2 Peter 3:18** - "But grow in the grace and knowledge of our Lord and Savior Jesus Christ. To him be glory both now and forever! Amen."
+
+*Significance:* Peter's final charge emphasizes continuous spiritual growth as the mark of authentic Christian living.
+
 ## Key Themes & Messages
 
 ### Major Themes

@@ -9,6 +9,43 @@
 **Purpose:** To explain reasons for exile, pronounce judgment on nations, and promise future restoration with new temple
 **Genre:** Prophetic oracle with visions, symbolic actions, poetry, and prose
 
+## One-Sentence Summary
+
+God's glory departs from corrupted temple but will return to dwell with His Spirit-transformed people in a purified new creation.
+
+## Book Structure
+
+**Part 1: Judgment on Jerusalem (Chapters 1-24)**
+- Chapters 1-3: Ezekiel's call and commission; vision of God's glory
+- Chapters 4-7: Symbolic acts depicting Jerusalem's siege and judgment
+- Chapters 8-11: Temple visions; idolatry exposed; glory departs from temple
+- Chapters 12-24: Messages of judgment; false prophets; individual responsibility
+
+**Part 2: Oracles Against the Nations (Chapters 25-32)**
+- Judgment on Ammon, Moab, Edom, Philistia, Tyre, Sidon, and Egypt
+
+**Part 3: Restoration and Hope (Chapters 33-39)**
+- Chapters 33-34: Watchman's role; God as true shepherd
+- Chapters 35-36: Judgment on Edom; new heart and Spirit promised
+- Chapter 37: Vision of dry bones - national resurrection and reunification
+- Chapters 38-39: Gog and Magog defeated; God's holiness vindicated
+
+**Part 4: The New Temple (Chapters 40-48)**
+- Chapters 40-43: Detailed vision of restored temple; God's glory returns
+- Chapters 44-46: Worship regulations and priesthood
+- Chapters 47-48: River of life; division of the land
+
+## Key Verses
+
+**Ezekiel 36:26-27** - "I will give you a new heart and put a new spirit in you; I will remove from you your heart of stone and give you a heart of flesh. And I will put my Spirit in you and move you to follow my decrees."
+*Significance:* God's promise of internal transformation through the Holy Spirit - new heart, not just external reform - foundation for New Covenant.
+
+**Ezekiel 37:3-5** - "He asked me, 'Son of man, can these bones live?' I said, 'Sovereign LORD, you alone know.' Then he said to me, 'Prophesy to these bones... I will make breath enter you, and you will come to life.'"
+*Significance:* Iconic vision demonstrating God's power to resurrect what seems hopelessly dead - national restoration and spiritual renewal.
+
+**Ezekiel 43:1-5** - "Then the man brought me to the gate facing east, and I saw the glory of the God of Israel coming from the east... and the glory of the LORD filled the temple."
+*Significance:* God's glory returns to purified temple, reversing the departure in chapter 11 and promising eternal divine presence with His people.
+
 ## Key Themes & Messages
 
 ### Major Themes

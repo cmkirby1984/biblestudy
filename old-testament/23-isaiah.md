@@ -9,6 +9,39 @@
 **Purpose:** To call Judah to repentance, announce coming judgment and exile, and promise future redemption through the Messiah
 **Genre:** Prophetic oracle; poetry and prose; apocalyptic visions
 
+## One-Sentence Summary
+
+God's holy judgment on sin and glorious promise of salvation through the suffering Messiah who will establish an eternal kingdom of peace and righteousness.
+
+## Book Structure
+
+**Part 1: Judgment and Immanuel (Chapters 1-39)**
+- Chapters 1-12: Prophecies of judgment and hope; Immanuel promised
+- Chapters 13-23: Oracles against the nations
+- Chapters 24-27: Apocalyptic judgment and salvation (Isaiah's Apocalypse)
+- Chapters 28-35: Woes and blessings; future restoration
+- Chapters 36-39: Historical interlude - Hezekiah and Assyrian crisis
+
+**Part 2: Comfort and the Servant (Chapters 40-55)**
+- Chapters 40-48: Comfort for exiles; God's sovereignty and Israel's restoration
+- Chapters 49-55: The Suffering Servant songs; salvation through substitutionary atonement
+
+**Part 3: Restoration and Glory (Chapters 56-66)**
+- Chapters 56-59: True worship and confession of sin
+- Chapters 60-62: Zion's future glory
+- Chapters 63-66: Prayer, judgment, and new heavens and new earth
+
+## Key Verses
+
+**Isaiah 6:3** - "Holy, holy, holy is the LORD Almighty; the whole earth is full of his glory."
+*Significance:* Reveals God's transcendent holiness that exposes human sinfulness and drives Isaiah's prophetic message throughout the book.
+
+**Isaiah 53:5** - "But he was pierced for our transgressions, he was crushed for our iniquities; the punishment that brought us peace was on him, and by his wounds we are healed."
+*Significance:* The clearest Old Testament prophecy of Christ's substitutionary atonement, showing how the Suffering Servant bears sin to bring salvation.
+
+**Isaiah 40:31** - "But those who hope in the LORD will renew their strength. They will soar on wings like eagles; they will run and not grow weary, they will walk and not be faint."
+*Significance:* Promises divine strength through waiting on God, encapsulating the hope and comfort theme of Isaiah's message to weary exiles.
+
 ## Key Themes & Messages
 
 ### Major Themes

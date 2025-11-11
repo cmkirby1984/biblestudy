@@ -9,6 +9,34 @@
 **Purpose:** To demonstrate God's power in delivering His people and establishing covenant relationship through the Law
 **Genre:** Historical narrative with legal code
 
+## One-Sentence Summary
+
+God delivers Israel from Egyptian slavery, establishes His covenant at Sinai, and dwells among them in the tabernacle.
+
+## Book Structure
+
+**Part 1: Deliverance from Egypt (chapters 1-18)**
+- Oppression in Egypt and Moses' calling (1-6)
+- The ten plagues and Pharaoh's hardened heart (7-11)
+- Passover, exodus, and Red Sea crossing (12-15)
+- Journey to Sinai with God's provision (16-18)
+
+**Part 2: Covenant at Sinai (chapters 19-24)**
+- God's covenant proposal and Israel's acceptance (19)
+- The Ten Commandments and covenant laws (20-23)
+- Covenant ratification ceremony (24)
+
+**Part 3: The Tabernacle (chapters 25-40)**
+- Instructions for the tabernacle and priesthood (25-31)
+- Golden calf rebellion and covenant renewal (32-34)
+- Construction and consecration of tabernacle (35-40)
+
+## Key Verses
+
+- **Exodus 3:14** - "God said to Moses, 'I AM WHO I AM. This is what you are to say to the Israelites: I AM has sent me to you.'" (God's eternal, self-existent nature)
+- **Exodus 12:13** - "The blood will be a sign for you... when I see the blood, I will pass over you." (Redemption through sacrifice)
+- **Exodus 19:5-6** - "You will be my treasured possession... a kingdom of priests and a holy nation." (Israel's covenant identity and mission)
+
 ## Key Themes & Messages
 
 ### Major Themes

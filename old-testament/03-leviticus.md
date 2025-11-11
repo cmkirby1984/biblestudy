@@ -9,6 +9,35 @@
 **Purpose:** To instruct Israel on how to worship a holy God and live as His holy people
 **Genre:** Legal and ceremonial code with some narrative
 
+## One-Sentence Summary
+
+God instructs His redeemed people how to worship Him in holiness through sacrifices, priests, and holy living in every area of life.
+
+## Book Structure
+
+**Part 1: Laws of Sacrifice and Offerings (chapters 1-7)**
+- Five types of offerings: burnt, grain, fellowship, sin, and guilt (1-7)
+
+**Part 2: The Priesthood (chapters 8-10)**
+- Consecration of Aaron and his sons (8)
+- Beginning of priestly ministry (9)
+- Nadab and Abihu's unauthorized fire (10)
+
+**Part 3: Laws of Purity (chapters 11-16)**
+- Clean and unclean foods and conditions (11-15)
+- Day of Atonement regulations (16)
+
+**Part 4: The Holiness Code (chapters 17-27)**
+- Moral and ethical laws for holy living (17-22)
+- Religious festivals and sacred times (23-25)
+- Blessings, curses, and vows (26-27)
+
+## Key Verses
+
+- **Leviticus 19:2** - "Be holy because I, the LORD your God, am holy." (The central call to reflect God's character)
+- **Leviticus 17:11** - "For the life of a creature is in the blood, and I have given it to you to make atonement for yourselves on the altar." (The necessity of blood sacrifice for sin)
+- **Leviticus 16:30** - "On this day atonement will be made for you, to cleanse you. Then, before the LORD, you will be clean from all your sins." (God's provision for complete cleansing)
+
 ## Key Themes & Messages
 
 ### Major Themes

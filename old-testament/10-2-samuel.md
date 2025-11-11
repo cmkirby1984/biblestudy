@@ -9,6 +9,42 @@
 **Purpose:** To chronicle David's reign and show both God's covenant promises and the consequences of sin
 **Genre:** Historical narrative
 
+## One-Sentence Summary
+
+David establishes his kingdom and receives God's eternal covenant promise, but his sin with Bathsheba brings tragic consequences that devastate his family despite divine forgiveness.
+
+## Book Structure
+
+1. **David's Triumphs** (Chapters 1-10)
+   - David becomes king over Judah, then all Israel
+   - Jerusalem captured and made capital
+   - The ark brought to Jerusalem
+   - The Davidic covenant established
+   - Military victories and expanding kingdom
+
+2. **David's Sin and Its Consequences** (Chapters 11-12)
+   - Adultery with Bathsheba
+   - Murder of Uriah
+   - Nathan's confrontation and David's repentance
+   - God's judgment: "The sword will never depart from your house"
+
+3. **David's Troubles** (Chapters 13-24)
+   - Amnon's rape of Tamar and murder by Absalom
+   - Absalom's rebellion and death
+   - David's return and continued conflicts
+   - Appendix: prayers, victories, and census
+
+## Key Verses
+
+- **2 Samuel 7:16** - "Your house and your kingdom will endure forever before me; your throne will be established forever."
+  - *Significance:* The Davidic covenant promises an eternal kingdom, ultimately fulfilled in Jesus Christ, the Son of David.
+
+- **2 Samuel 12:13-14** - "Then David said to Nathan, 'I have sinned against the LORD.' Nathan replied, 'The LORD has taken away your sin. You are not going to die. But because by doing this you have shown utter contempt for the LORD, the son born to you will die.'"
+  - *Significance:* This reveals the paradox of God's grace: forgiveness is freely given, yet consequences remain.
+
+- **2 Samuel 22:2-3** - "The LORD is my rock, my fortress and my deliverer; my God is my rock, in whom I take refuge, my shield and the horn of my salvation. He is my stronghold, my refuge and my savior."
+  - *Significance:* Despite his failures, David's ultimate trust remains in God's character and faithfulness.
+
 ## Key Themes & Messages
 
 ### Major Themes

@@ -9,6 +9,46 @@
 **Purpose:** To document the spread of the gospel from Jerusalem to Rome through the power of the Holy Spirit
 **Genre:** Historical narrative; continuation of Luke's Gospel
 
+## One-Sentence Summary
+
+The risen Christ builds His church through Spirit-empowered witnesses who spread the gospel from Jerusalem to Rome despite persecution, breaking every barrier.
+
+## Book Structure
+
+**I. Preparation: The Risen Lord and His Commission (1:1-26)**
+- Jesus' final instructions and ascension
+- Choosing Matthias to replace Judas
+
+**II. The Church in Jerusalem (2:1-8:3)**
+- Pentecost: Holy Spirit poured out (2:1-41)
+- Life of the early community (2:42-47)
+- Peter and John's ministry and persecution (3:1-5:42)
+- Stephen's martyrdom (6:1-8:3)
+
+**III. The Church in Judea and Samaria (8:4-12:25)**
+- Philip's ministry in Samaria and to the Ethiopian (8:4-40)
+- Saul's conversion and early ministry (9:1-31)
+- Peter's ministry: Cornelius and Gentile inclusion (10:1-11:18)
+- Church in Antioch; James killed, Peter imprisoned (11:19-12:25)
+
+**IV. The Church to the Ends of the Earth (13:1-28:31)**
+- **Paul's First Missionary Journey** (13:1-14:28): Cyprus and Asia Minor
+- **Jerusalem Council** (15:1-35): Gentiles welcomed without circumcision
+- **Paul's Second Journey** (15:36-18:22): Greece and Corinth
+- **Paul's Third Journey** (18:23-21:16): Ephesus and return to Jerusalem
+- **Paul's Arrest and Journey to Rome** (21:17-28:31): Trials and voyage
+
+## Key Verses
+
+**Acts 1:8** - *"But you will receive power when the Holy Spirit comes on you; and you will be my witnesses in Jerusalem, and in all Judea and Samaria, and to the ends of the earth."*
+- **Significance:** Jesus' final command provides the outline for the entire book of Acts—geographic expansion empowered by the Spirit.
+
+**Acts 2:38-39** - *"Peter replied, 'Repent and be baptized, every one of you, in the name of Jesus Christ for the forgiveness of your sins. And you will receive the gift of the Holy Spirit. The promise is for you and your children and for all who are far off—for all whom the Lord our God will call.'"*
+- **Significance:** Peter's Pentecost message defines the gospel call—repentance, baptism, forgiveness, and the Spirit for all people.
+
+**Acts 4:12** - *"Salvation is found in no one else, for there is no other name under heaven given to mankind by which we must be saved."*
+- **Significance:** Bold declaration of Jesus' exclusive role in salvation, central to apostolic preaching despite persecution.
+
 ## Key Themes & Messages
 
 ### Major Themes

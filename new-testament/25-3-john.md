@@ -9,6 +9,46 @@
 **Purpose:** To commend Gaius for showing hospitality and address Diotrephes' opposition to John's authority
 **Genre:** Epistle; personal letter
 
+## One-Sentence Summary
+
+Practice Christian hospitality and support gospel workers, imitating good not evil, as demonstrated by faithful Gaius versus proud Diotrephes.
+
+## Book Structure
+
+1. **Greeting and Commendation of Gaius (verses 1-4)**
+   - Joy in Gaius's faithfulness
+   - Walking in the truth
+
+2. **Gaius's Hospitality Praised (verses 5-8)**
+   - Supporting traveling teachers
+   - Co-workers in the truth
+
+3. **Diotrephes's Pride Condemned (verses 9-10)**
+   - Loves to be first
+   - Rejects apostolic authority
+   - Malicious gossip
+
+4. **Demetrius Commended (verses 11-12)**
+   - Good testimony from all
+   - Imitate what is good
+
+5. **Closing Remarks (verses 13-14)**
+   - Hope for face-to-face visit
+
+## Key Verses
+
+**3 John 1:4** - "I have no greater joy than to hear that my children are walking in the truth."
+
+*Significance:* Reveals the heart of spiritual leadership—finding deepest satisfaction in the spiritual faithfulness of fellow believers.
+
+**3 John 1:8** - "We ought therefore to show hospitality to such people so that we may work together for the truth."
+
+*Significance:* Calls believers to support gospel workers through practical hospitality, making them partners in spreading truth.
+
+**3 John 1:11** - "Dear friend, do not imitate what is evil but what is good. Anyone who does what is good is from God. Anyone who does what is evil has not seen God."
+
+*Significance:* Establishes that actions reveal spiritual reality—imitation of good or evil demonstrates one's true relationship with God.
+
 ## Key Themes & Messages
 
 ### Major Themes

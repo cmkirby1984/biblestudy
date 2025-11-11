@@ -9,6 +9,41 @@
 **Purpose:** To warn against showing hospitality to false teachers who deny Christ's incarnation
 **Genre:** Epistle; brief personal letter
 
+## One-Sentence Summary
+
+Walk in truth and love while refusing hospitality to false teachers who deny Jesus came in the flesh, protecting the church from deception.
+
+## Book Structure
+
+1. **Greeting in Truth and Love (verses 1-3)**
+   - Address to chosen lady and her children
+
+2. **Walk in Love and Obedience (verses 4-6)**
+   - Joy in walking in truth
+   - Love means keeping commands
+
+3. **Warning Against Deceivers (verses 7-11)**
+   - Acknowledge Jesus came in flesh
+   - Don't welcome false teachers
+   - Abide in Christ's teaching
+
+4. **Closing Remarks (verses 12-13)**
+   - Hope for face-to-face visit
+
+## Key Verses
+
+**2 John 1:6** - "And this is love: that we walk in obedience to his commands. As you have heard from the beginning, his command is that you walk in love."
+
+*Significance:* Defines genuine love as inseparable from obedience, uniting doctrine and practice in authentic Christian living.
+
+**2 John 1:9** - "Anyone who runs ahead and does not continue in the teaching of Christ does not have God; whoever continues in the teaching has both the Father and the Son."
+
+*Significance:* Warns against abandoning apostolic teaching and affirms that relationship with God depends on faithfulness to Christ's teaching.
+
+**2 John 1:10-11** - "If anyone comes to you and does not bring this teaching, do not take them into your house or welcome them. Anyone who welcomes them shares in their wicked work."
+
+*Significance:* Commands believers to refuse hospitality to false teachers, protecting truth and avoiding complicity in spreading error.
+
 ## Key Themes & Messages
 
 ### Major Themes

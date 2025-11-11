@@ -9,6 +9,42 @@
 **Purpose:** To show how godly leadership and commitment to covenant can overcome obstacles and restore community
 **Genre:** Historical narrative with memoir format
 
+## One-Sentence Summary
+
+Nehemiah courageously leads the rebuilding of Jerusalem's walls through prayer and persistent action, then joins Ezra in spiritual renewal through covenant recommitment and reform.
+
+## Book Structure
+
+1. **Rebuilding the Walls** (Chapters 1-7)
+   - Nehemiah's burden and prayer for Jerusalem
+   - Journey to Jerusalem (444 BC)
+   - Overcoming opposition through prayer and vigilance
+   - Wall completed in 52 days
+   - List of returned exiles
+
+2. **Spiritual Renewal** (Chapters 8-10)
+   - Public reading and teaching of the Law
+   - Celebration of the Feast of Tabernacles
+   - Corporate confession and repentance
+   - Covenant renewal ceremony
+
+3. **Reforms and Continued Leadership** (Chapters 11-13)
+   - Repopulating Jerusalem
+   - Dedication of the wall
+   - Nehemiah's second term reforms
+   - Addressing Sabbath violations and intermarriage
+
+## Key Verses
+
+- **Nehemiah 4:14** - "After I looked things over, I stood up and said to the nobles, the officials and the rest of the people, 'Don't be afraid of them. Remember the Lord, who is great and awesome, and fight for your families, your sons and your daughters, your wives and your homes.'"
+  - *Significance:* Nehemiah's courage in opposition combines trust in God with courageous action.
+
+- **Nehemiah 8:10** - "Nehemiah said, 'Go and enjoy choice food and sweet drinks, and send some to those who have nothing prepared. This day is holy to our Lord. Do not grieve, for the joy of the LORD is your strength.'"
+  - *Significance:* True joy comes from understanding God's Word and experiencing His presence, providing strength for service.
+
+- **Nehemiah 4:6** - "So we rebuilt the wall till all of it reached half its height, for the people worked with all their heart."
+  - *Significance:* Success requires wholehearted commitment and unified effort under godly leadership.
+
 ## Key Themes & Messages
 
 ### Major Themes

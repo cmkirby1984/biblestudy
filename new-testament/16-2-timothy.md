@@ -9,6 +9,46 @@
 **Purpose:** To encourage Timothy to remain faithful, endure suffering, and guard the gospel
 **Genre:** Epistle; personal and urgent final testament
 
+## One-Sentence Summary
+
+Paul's final charge from prison: remain faithful to the gospel despite suffering and apostasy, preach God's inspired and sufficient word, and finish your ministry well as Paul has finished his.
+
+## Book Structure
+
+**I. Introduction: Thanksgiving and Encouragement (1:1-18)**
+- Gratitude for Timothy's faith (1:1-7)
+- Don't be ashamed of the gospel or Paul (1:8-12)
+- Guard the gospel deposit (1:13-18)
+
+**II. Charge to Endure and Be Faithful (2:1-26)**
+- Be strong and entrust truth to faithful people (2:1-13)
+- Rightly handle the word of truth (2:14-19)
+- Be a vessel for honorable use (2:20-26)
+
+**III. Warning: Last Days and Apostasy (3:1-17)**
+- Terrible times and false teachers (3:1-9)
+- Paul's example of persecution (3:10-13)
+- Continue in Scripture's sufficiency (3:14-17)
+
+**IV. Final Charge: Preach the Word (4:1-8)**
+- Solemn charge to preach in season and out (4:1-5)
+- Paul's imminent departure and crown (4:6-8)
+
+**V. Personal Remarks and Conclusion (4:9-22)**
+- Request for Timothy to come
+- Personal updates and final greetings
+
+## Key Verses
+
+**2 Timothy 1:7** - "For the Spirit God gave us does not make us timid, but gives us power, love and self-discipline."
+- *Significance:* Encourages fearful Timothy that authentic Christian ministry flows from the Spirit's empowerment—not cowardice but courage, not selfishness but love, not chaos but self-control.
+
+**2 Timothy 3:16-17** - "All Scripture is God-breathed and is useful for teaching, rebuking, correcting and training in righteousness, so that the servant of God may be thoroughly equipped for every good work."
+- *Significance:* The foundational statement on biblical inspiration and sufficiency, affirming that Scripture's divine origin ensures its complete adequacy for teaching truth, correcting error, and equipping believers for godly living.
+
+**2 Timothy 4:7-8** - "I have fought the good fight, I have finished the race, I have kept the faith. Now there is in store for me the crown of righteousness, which the Lord, the righteous Judge, will award to me on that day."
+- *Significance:* Paul's triumphant testimony facing execution, modeling how to finish life well through faithful perseverance and confident hope in Christ's reward for those who complete their calling.
+
 ## Key Themes & Messages
 
 ### Major Themes

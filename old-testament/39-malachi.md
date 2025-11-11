@@ -9,6 +9,33 @@
 **Purpose:** To confront spiritual complacency and call for covenant faithfulness before the Messiah comes
 **Genre:** Prophetic oracle using dispute/dialogue format
 
+## One-Sentence Summary
+
+Stop robbing God with corrupt worship and faithless living; prepare for the coming Messenger and the Day of the LORD's refining judgment.
+
+## Book Structure
+
+**Six Disputations/Debates (Chapters 1-4)**
+- 1:2-5: God's love questioned and defended
+- 1:6-2:9: Priests' corrupt worship condemned
+- 2:10-16: Marital unfaithfulness and divorce rebuked
+- 2:17-3:5: God's justice questioned; Messenger to purify and judge
+- 3:6-12: Robbing God through withheld tithes
+- 3:13-4:6: Arrogant words against God; righteous vs. wicked distinguished; Elijah's coming
+
+*Note: Last prophetic voice before 400 years of silence until John the Baptist.*
+
+## Key Verses
+
+**Malachi 3:8-10** - "'Will a mere mortal rob God? Yet you rob me. But you ask, "How are we robbing you?" In tithes and offerings... Bring the whole tithe into the storehouse, that there may be food in my house. Test me in this,' says the LORD Almighty, 'and see if I will not throw open the floodgates of heaven and pour out so much blessing that there will not be room enough to store it.'"
+*Significance:* Only place God invites testing Him - generous, faithful giving opens doors to abundant blessing; withholding from God robs both Him and ourselves.
+
+**Malachi 1:6-8** - "'A son honors his father, and a slave his master. If I am a father, where is the honor due me? If I am a master, where is the respect due me?' says the LORD Almighty... 'When you offer blind animals for sacrifice, is that not wrong? When you sacrifice lame or diseased animals, is that not wrong?'"
+*Significance:* God deserves our best, not leftovers - contempt shown through substandard worship dishonors Him and reveals heart condition.
+
+**Malachi 4:2** - "But for you who revere my name, the sun of righteousness will rise with healing in its rays. And you will go out and frolic like well-fed calves."
+*Significance:* Promise of Christ ("sun of righteousness") bringing healing and joy to those who fear God - ultimate hope beyond judgment.
+
 ## Key Themes & Messages
 
 ### Major Themes

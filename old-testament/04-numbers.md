@@ -9,6 +9,36 @@
 **Purpose:** To record Israel's failure to trust God and the consequences, while showing God's faithfulness to the new generation
 **Genre:** Historical narrative with census lists, legal material, and poetry
 
+## One-Sentence Summary
+
+Israel's unbelief leads to 40 years of wilderness wandering, but God remains faithful to prepare a new generation for the Promised Land.
+
+## Book Structure
+
+**Part 1: Preparation at Sinai (chapters 1-10)**
+- First census of the fighting men (1)
+- Organization of the camp and tribes (2-4)
+- Laws and the Nazirite vow (5-6)
+- Tabernacle dedication and departure from Sinai (7-10)
+
+**Part 2: Wilderness Wanderings and Rebellion (chapters 11-25)**
+- Complaints, quail, and Miriam's rebellion (11-12)
+- Spy report and refusal to enter Canaan (13-14)
+- Various rebellions: Korah, Aaron's rod, bronze serpent (15-21)
+- Balaam and Balak, Moab's seduction (22-25)
+
+**Part 3: Preparing for Canaan (chapters 26-36)**
+- Second census of the new generation (26)
+- Joshua commissioned as Moses' successor (27)
+- Laws for offerings, vows, and warfare (28-31)
+- Transjordan settlement and conquest preparation (32-36)
+
+## Key Verses
+
+- **Numbers 14:18** - "The LORD is slow to anger, abounding in love and forgiving sin and rebellion." (God's patient, forgiving character)
+- **Numbers 23:19** - "God is not human, that he should lie, not a human being, that he should change his mind." (God's unchanging faithfulness)
+- **Numbers 21:8-9** - "Make a snake and put it up on a pole; anyone who is bitten can look at it and live." (Salvation through looking to God's provision in faith)
+
 ## Key Themes & Messages
 
 ### Major Themes

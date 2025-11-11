@@ -9,6 +9,37 @@
 **Purpose:** To document God's faithfulness in restoring His people and to call them to covenant obedience
 **Genre:** Historical narrative with memoir elements
 
+## One-Sentence Summary
+
+God fulfills His promise by bringing exiles back to Jerusalem where they rebuild the temple despite opposition, and Ezra leads spiritual renewal through devotion to Scripture.
+
+## Book Structure
+
+1. **First Return Under Zerubbabel** (Chapters 1-6)
+   - Cyrus's decree and first return (538 BC)
+   - Temple foundation laid
+   - Opposition halts the work
+   - Prophetic encouragement (Haggai, Zechariah)
+   - Temple completed and dedicated (516 BC)
+
+2. **Second Return Under Ezra** (Chapters 7-10)
+   - Ezra's return with Artaxerxes' support (458 BC)
+   - Ezra's devotion to God's Word
+   - Journey and safe arrival
+   - Crisis of intermarriage addressed
+   - Community repentance and reform
+
+## Key Verses
+
+- **Ezra 7:10** - "For Ezra had devoted himself to the study and observance of the Law of the LORD, and to teaching its decrees and laws in Israel."
+  - *Significance:* Ezra's three-fold commitment—study, obey, teach—models how Scripture should shape God's people.
+
+- **Ezra 3:11** - "With praise and thanksgiving they sang to the LORD: 'He is good; his love toward Israel endures forever.' And all the people gave a great shout of praise to the LORD, because the foundation of the house of the LORD was laid."
+  - *Significance:* Celebration of God's faithfulness in restoration marks a new beginning for the community.
+
+- **Ezra 8:22** - "The gracious hand of our God is on everyone who looks to him, but his great anger is against all who forsake him."
+  - *Significance:* Ezra's testimony reveals that God's protective presence comes through seeking Him wholeheartedly.
+
 ## Key Themes & Messages
 
 ### Major Themes

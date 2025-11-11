@@ -9,6 +9,45 @@
 **Purpose:** To explain Babylon's conquest as God's judgment for covenant unfaithfulness, while promising future restoration
 **Genre:** Prophetic oracle; biography; laments; prose and poetry
 
+## One-Sentence Summary
+
+God's judgment falls on unrepentant Judah through Babylonian exile, but He promises a new covenant that transforms hearts and brings complete forgiveness.
+
+## Book Structure
+
+**Part 1: Prophecies Against Judah (Chapters 1-25)**
+- Chapters 1-10: Call and early messages; Judah's persistent sin
+- Chapters 11-20: Covenant violations and Jeremiah's suffering
+- Chapters 21-25: Final warnings to kings and false prophets; 70 years of exile
+
+**Part 2: Conflict and Biography (Chapters 26-29)**
+- Chapters 26-29: Opposition from false prophets; letter to exiles
+
+**Part 3: The Book of Consolation (Chapters 30-33)**
+- Chapters 30-31: Promises of restoration and the New Covenant
+- Chapters 32-33: Jeremiah buys field as sign of hope; righteous Branch
+
+**Part 4: Jerusalem's Fall (Chapters 34-45)**
+- Chapters 34-39: Final days of Jerusalem; city falls (586 BC)
+- Chapters 40-45: Aftermath; remnant flees to Egypt
+
+**Part 5: Oracles Against the Nations (Chapters 46-51)**
+- Prophecies against Egypt, Philistia, Moab, Ammon, Edom, Damascus, Babylon, and others
+
+**Part 6: Historical Appendix (Chapter 52)**
+- Fall of Jerusalem retold; Jehoiachin's release
+
+## Key Verses
+
+**Jeremiah 29:11** - "For I know the plans I have for you, declares the LORD, plans to prosper you and not to harm you, plans to give you hope and a future."
+*Significance:* God's promise to exiles that judgment isn't final - He has good purposes beyond present suffering, offering hope in darkest circumstances.
+
+**Jeremiah 31:33** - "I will put my law in their minds and write it on their hearts. I will be their God, and they will be my people."
+*Significance:* The New Covenant promise of internal transformation through the Spirit, foundational to New Testament theology and Christ's work.
+
+**Jeremiah 1:5** - "Before I formed you in the womb I knew you, before you were born I set you apart; I appointed you as a prophet to the nations."
+*Significance:* God's sovereign calling and purposes begin before birth, establishing Jeremiah's authority and encouraging believers in their divine calling.
+
 ## Key Themes & Messages
 
 ### Major Themes

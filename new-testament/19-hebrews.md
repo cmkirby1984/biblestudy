@@ -9,6 +9,47 @@
 **Purpose:** To demonstrate Christ's superiority over Old Covenant and warn against apostasy
 **Genre:** Epistle; theological sermon/exhortation
 
+## One-Sentence Summary
+
+Jesus Christ is superior to all Old Covenant elements and offers perfect access to God as our eternal High Priest through His once-for-all sacrifice.
+
+## Book Structure
+
+1. **Christ's Supremacy (1:1-4:13)**
+   - Superior to angels (1:1-2:18)
+   - Superior to Moses and Joshua (3:1-4:13)
+
+2. **Christ's High Priesthood (4:14-7:28)**
+   - Our sympathetic High Priest (4:14-5:10)
+   - Warning against apostasy (5:11-6:20)
+   - Melchizedek priesthood (7:1-28)
+
+3. **The New Covenant (8:1-10:18)**
+   - Better covenant and sanctuary (8:1-9:28)
+   - Better sacrifice (10:1-18)
+
+4. **Faith and Perseverance (10:19-12:29)**
+   - Call to persevere (10:19-39)
+   - Hall of faith examples (11:1-40)
+   - Endurance through discipline (12:1-29)
+
+5. **Practical Exhortations (13:1-25)**
+   - Christian living and closing greetings
+
+## Key Verses
+
+**Hebrews 1:1-3** - "In the past God spoke to our ancestors through the prophets at many times and in various ways, but in these last days he has spoken to us by his Son, whom he appointed heir of all things, and through whom also he made the universe. The Son is the radiance of God's glory and the exact representation of his being, sustaining all things by his powerful word."
+
+*Significance:* Establishes Jesus as God's final and complete revelation, superior to all previous revelations.
+
+**Hebrews 4:14-16** - "Therefore, since we have a great high priest who has ascended into heaven, Jesus the Son of God, let us hold firmly to the faith we profess. For we do not have a high priest who is unable to empathize with our weaknesses, but we have one who has been tempted in every way, just as we are—yet he did not sin. Let us then approach God's throne of grace with confidence, so that we may receive mercy and find grace to help us in our time of need."
+
+*Significance:* Presents Jesus as our sympathetic High Priest who provides confident access to God's throne of grace.
+
+**Hebrews 11:1** - "Now faith is confidence in what we hope for and assurance about what we do not see."
+
+*Significance:* Defines biblical faith and introduces the chapter showcasing faithful Old Testament examples.
+
 ## Key Themes & Messages
 
 ### Major Themes

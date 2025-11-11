@@ -9,6 +9,38 @@
 **Purpose:** To show the consequences of covenant unfaithfulness and the need for godly leadership
 **Genre:** Historical narrative with cyclical structure
 
+## One-Sentence Summary
+
+Israel repeatedly falls into idolatry and oppression, and God raises up judges to deliver them, revealing the devastating consequences of abandoning Him and the urgent need for righteous leadership.
+
+## Book Structure
+
+1. **Introduction: Incomplete Conquest** (Chapters 1-3:6)
+   - Failure to drive out the Canaanites
+   - Pattern of the judges cycle explained
+   - Testing and consequences outlined
+
+2. **The Major Judges** (Chapters 3:7-16:31)
+   - Othniel, Ehud, and Deborah (3:7-5:31)
+   - Gideon and Abimelech (6:1-9:57)
+   - Jephthah and Samson (10:6-16:31)
+
+3. **Examples of Israel's Moral Chaos** (Chapters 17-21)
+   - Micah's idolatry and the Danite migration
+   - The Levite's concubine and civil war
+   - "Everyone did what was right in their own eyes"
+
+## Key Verses
+
+- **Judges 2:16-19** - "Then the LORD raised up judges, who saved them out of the hands of these raiders. Yet they would not listen to their judges but prostituted themselves to other gods and worshiped them... Whenever the LORD raised up a judge for them, he was with the judge and saved them... But when the judge died, the people returned to ways even more corrupt than those of their ancestors."
+  - *Significance:* This passage summarizes the entire cyclical pattern of the book and Israel's persistent rebellion.
+
+- **Judges 17:6; 21:25** - "In those days Israel had no king; everyone did as they saw fit."
+  - *Significance:* This repeated refrain explains the moral chaos and points to the need for godly leadership (ultimately fulfilled in Christ).
+
+- **Judges 6:12** - "When the angel of the LORD appeared to Gideon, he said, 'The LORD is with you, mighty warrior.'"
+  - *Significance:* God sees potential in His servants and equips the unlikely to accomplish His purposes.
+
 ## Key Themes & Messages
 
 ### Major Themes

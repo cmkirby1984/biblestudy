@@ -9,6 +9,43 @@
 **Purpose:** To demonstrate God's faithfulness in fulfilling His promises and to call Israel to covenant obedience
 **Genre:** Historical narrative
 
+## One-Sentence Summary
+
+God fulfills His promise to give Israel the Promised Land as Joshua leads the conquest of Canaan and divides the territory among the tribes, calling them to covenant faithfulness.
+
+## Book Structure
+
+1. **Preparation for Conquest** (Chapters 1-5)
+   - Joshua's commissioning and the people's commitment
+   - Crossing the Jordan River
+   - Circumcision and Passover at Gilgal
+
+2. **Conquest of Canaan** (Chapters 6-12)
+   - Central campaign: Jericho and Ai
+   - Southern and northern campaigns
+   - Summary of conquered kings
+
+3. **Division of the Land** (Chapters 13-21)
+   - Land allotments for the tribes
+   - Cities of refuge established
+   - Levitical cities assigned
+
+4. **Joshua's Final Addresses** (Chapters 22-24)
+   - Eastern tribes return home
+   - Joshua's farewell speeches
+   - Covenant renewal at Shechem
+
+## Key Verses
+
+- **Joshua 1:8-9** - "Keep this Book of the Law always on your lips; meditate on it day and night, so that you may be careful to do everything written in it. Then you will be prosperous and successful. Have I not commanded you? Be strong and courageous. Do not be afraid; do not be discouraged, for the LORD your God will be with you wherever you go."
+  - *Significance:* God's formula for success combines obedience to His Word with courage grounded in His presence.
+
+- **Joshua 24:15** - "But if serving the LORD seems undesirable to you, then choose for yourselves this day whom you will serve, whether the gods your ancestors served beyond the Euphrates, or the gods of the Amorites, in whose land you are living. But as for me and my household, we will serve the LORD."
+  - *Significance:* Joshua's challenge calls each generation to personal commitment rather than inherited faith.
+
+- **Joshua 21:45** - "Not one of all the LORD's good promises to Israel failed; every one was fulfilled."
+  - *Significance:* God's complete faithfulness to His promises serves as the foundation for continued trust.
+
 ## Key Themes & Messages
 
 ### Major Themes

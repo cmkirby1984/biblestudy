@@ -9,6 +9,42 @@
 **Purpose:** To provide assurance of salvation and expose false teaching about Jesus and Christian living
 **Genre:** Epistle; more like sermon or tract than typical letter
 
+## One-Sentence Summary
+
+God is light and love; genuine believers demonstrate authentic faith through right belief about Jesus, obedience to God's commands, and love for one another.
+
+## Book Structure
+
+1. **God is Light: Fellowship and Confession (1:1-2:27)**
+   - The Word of Life proclaimed (1:1-4)
+   - Walk in the light (1:5-2:2)
+   - Obedience and love required (2:3-17)
+   - Warning against antichrists (2:18-27)
+
+2. **Children of God: Righteousness and Love (2:28-4:6)**
+   - Practice righteousness (2:28-3:10)
+   - Love one another (3:11-24)
+   - Test the spirits (4:1-6)
+
+3. **God is Love: Love and Assurance (4:7-5:21)**
+   - God's love and our love (4:7-21)
+   - Faith conquers the world (5:1-12)
+   - Assurance and confident prayer (5:13-21)
+
+## Key Verses
+
+**1 John 1:9** - "If we confess our sins, he is faithful and just and will forgive us our sins and purify us from all unrighteousness."
+
+*Significance:* Provides assurance that honest confession leads to complete forgiveness and cleansing through God's faithfulness.
+
+**1 John 3:16-18** - "This is how we know what love is: Jesus Christ laid down his life for us. And we ought to lay down our lives for our brothers and sisters. If anyone has material possessions and sees a brother or sister in need but has no pity on them, how can the love of God be in that person? Dear children, let us not love with words or speech but with actions and in truth."
+
+*Significance:* Defines genuine Christian love as practical, sacrificial action modeled on Christ's ultimate sacrifice, not mere words.
+
+**1 John 4:19** - "We love because he first loved us."
+
+*Significance:* Establishes that all Christian love flows from and responds to God's initiating love, not from human effort or merit.
+
 ## Key Themes & Messages
 
 ### Major Themes

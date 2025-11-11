@@ -9,6 +9,38 @@
 **Purpose:** To call Israel to renewed covenant commitment, reviewing the law and urging wholehearted devotion to God
 **Genre:** Covenant renewal document with sermons, legal code, and narrative
 
+## One-Sentence Summary
+
+Moses calls Israel to love God wholeheartedly, remember His faithfulness, and choose obedience as they enter the Promised Land.
+
+## Book Structure
+
+**Part 1: Looking Back - Historical Review (chapters 1-4)**
+- Moses reviews Israel's journey from Horeb to Moab (1-3)
+- Call to obedience and warning against idolatry (4)
+
+**Part 2: The Law Restated (chapters 5-26)**
+- The Ten Commandments repeated (5)
+- The Shema and wholehearted devotion (6)
+- Instructions for life in Canaan (7-11)
+- Detailed laws for worship, justice, and society (12-26)
+
+**Part 3: Covenant Renewal (chapters 27-30)**
+- Ceremony on Mount Ebal and Gerizim (27)
+- Blessings for obedience and curses for disobedience (28)
+- The covenant in Moab and call to choose life (29-30)
+
+**Part 4: Moses' Final Words and Death (chapters 31-34)**
+- Joshua commissioned, Song of Moses (31-32)
+- Moses blesses the tribes (33)
+- Moses' death and burial (34)
+
+## Key Verses
+
+- **Deuteronomy 6:4-5** - "Hear, O Israel: The LORD our God, the LORD is one. Love the LORD your God with all your heart and with all your soul and with all your strength." (The Shema - greatest commandment)
+- **Deuteronomy 30:19-20** - "I have set before you life and death, blessings and curses. Now choose life... love the LORD your God, listen to his voice, and hold fast to him." (The choice between life and death)
+- **Deuteronomy 8:3** - "Man does not live on bread alone but on every word that comes from the mouth of the LORD." (Dependence on God's word)
+
 ## Key Themes & Messages
 
 ### Major Themes

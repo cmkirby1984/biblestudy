@@ -9,6 +9,42 @@
 **Purpose:** To explain why Israel and Judah went into exile - covenant unfaithfulness led to covenant curses
 **Genre:** Historical narrative with prophetic elements
 
+## One-Sentence Summary
+
+Despite Elisha's miracles and brief reforms under Hezekiah and Josiah, both Israel and Judah fall into exile due to persistent idolatry and covenant unfaithfulness.
+
+## Book Structure
+
+1. **Elisha's Ministry and Israel's Decline** (Chapters 1-13)
+   - Elijah's departure and Elisha's double portion
+   - Miracles demonstrating God's power and care
+   - Kings of Israel continue in idolatry
+   - Syrian conflicts and internal strife
+
+2. **Fall of Israel** (Chapters 14-17)
+   - Continued apostasy in northern kingdom
+   - Assyrian invasion under Shalmaneser
+   - Samaria falls (722 BC); Israel exiled
+   - Explanation: persistent idolatry despite warnings
+
+3. **Judah's Survival and Ultimate Fall** (Chapters 18-25)
+   - Hezekiah's reforms and deliverance from Assyria
+   - Manasseh's wickedness seals Judah's fate
+   - Josiah's reforms come too late
+   - Babylonian exile (586 BC); temple destroyed
+   - Glimmer of hope: Jehoiachin released
+
+## Key Verses
+
+- **2 Kings 17:13-14** - "The LORD warned Israel and Judah through all his prophets and seers: 'Turn from your evil ways. Observe my commands and decrees, in accordance with the entire Law that I commanded your ancestors to obey.' But they would not listen and were as stiff-necked as their ancestors, who did not trust in the LORD their God."
+  - *Significance:* This explains why exile occurred: persistent rejection of God's warnings through the prophets.
+
+- **2 Kings 18:5-6** - "Hezekiah trusted in the LORD, the God of Israel. There was no one like him among all the kings of Judah, either before him or after him. He held fast to the LORD and did not stop following him; he kept the commands the LORD had given Moses."
+  - *Significance:* Hezekiah models faithful leadership, showing that wholehearted trust brings deliverance.
+
+- **2 Kings 23:25** - "Neither before nor after Josiah was there a king like him who turned to the LORD as he did—with all his heart and with all his soul and with all his strength, in accordance with all the Law of Moses."
+  - *Significance:* Even exemplary devotion couldn't reverse the accumulated judgment from previous generations' sins.
+
 ## Key Themes & Messages
 
 ### Major Themes

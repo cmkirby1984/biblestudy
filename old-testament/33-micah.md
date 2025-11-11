@@ -9,6 +9,30 @@
 **Purpose:** To announce judgment for social injustice and false religion, while promising future restoration through the Messiah
 **Genre:** Prophetic oracle; poetry with lawsuit format
 
+## One-Sentence Summary
+
+True religion means acting justly, loving mercy, and walking humbly with God while awaiting the Messiah from Bethlehem who brings peace.
+
+## Book Structure
+
+**Three Cycles of Judgment and Hope (Chapters 1-7)**
+- Chapters 1-2: Judgment on Samaria and Jerusalem for injustice; promise of restoration
+- Chapters 3-5: Leaders condemned; nations stream to Zion; ruler from Bethlehem prophesied
+- Chapters 6-7: God's case against Israel; what the LORD requires; confidence in God's mercy
+
+*Note: Each section alternates between judgment and hope, following a pattern of doom then deliverance.*
+
+## Key Verses
+
+**Micah 6:8** - "He has shown you, O mortal, what is good. And what does the LORD require of you? To act justly and to love mercy and to walk humbly with your God."
+*Significance:* Concise summary of authentic faith - integrating ethics (justice), compassion (mercy), and devotion (humility with God) over mere ritual.
+
+**Micah 5:2** - "But you, Bethlehem Ephrathah, though you are small among the clans of Judah, out of you will come for me one who will be ruler over Israel, whose origins are from of old, from ancient times."
+*Significance:* Messianic prophecy identifying Bethlehem as birthplace of eternal ruler - fulfilled in Jesus Christ, establishing His divine origins.
+
+**Micah 7:18-19** - "Who is a God like you, who pardons sin and forgives the transgression of the remnant of his inheritance? You do not stay angry forever but delight to show mercy. You will again have compassion on us; you will tread our sins underfoot and hurl all our iniquities into the depths of the sea."
+*Significance:* Celebrates God's incomparable mercy and complete forgiveness - sins not just covered but utterly removed and forgotten.
+
 ## Key Themes & Messages
 
 ### Major Themes

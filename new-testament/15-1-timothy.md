@@ -9,6 +9,49 @@
 **Purpose:** To instruct Timothy on church leadership, sound doctrine, and combating false teaching
 **Genre:** Epistle; pastoral instruction
 
+## One-Sentence Summary
+
+Guard sound doctrine against false teaching, appoint qualified leaders based on godly character, conduct worship properly, and pursue godliness with contentment as you faithfully shepherd God's church.
+
+## Book Structure
+
+**I. Introduction: Charge to Timothy (1:1-20)**
+- Warning against false teachers (1:3-11)
+- Paul's testimony of God's mercy (1:12-17)
+- Timothy's charge to fight the good fight (1:18-20)
+
+**II. Instructions for Church Life (2:1-3:16)**
+- Prayer and worship (2:1-15)
+- Qualifications for overseers/elders (3:1-7)
+- Qualifications for deacons (3:8-13)
+- Purpose: conduct in God's household (3:14-16)
+
+**III. Warnings and Pastoral Duties (4:1-6:2)**
+- Warning against false teaching (4:1-5)
+- Timothy's personal ministry (4:6-16)
+- Instructions for various groups (5:1-6:2)
+  - Older and younger members (5:1-2)
+  - Widows (5:3-16)
+  - Elders (5:17-25)
+  - Slaves (6:1-2)
+
+**IV. Final Charges (6:3-21)**
+- False teachers and love of money (6:3-10)
+- Fight the good fight of faith (6:11-16)
+- Instructions for the rich (6:17-19)
+- Guard the deposit (6:20-21)
+
+## Key Verses
+
+**1 Timothy 3:16** - "Beyond all question, the mystery from which true godliness springs is great: He appeared in the flesh, was vindicated by the Spirit, was seen by angels, was preached among the nations, was believed on in the world, was taken up in glory."
+- *Significance:* An early Christian hymn summarizing the gospel mystery—Christ's incarnation, resurrection, proclamation, and ascension form the foundation of authentic godliness and church life.
+
+**1 Timothy 4:12** - "Don't let anyone look down on you because you are young, but set an example for the believers in speech, in conduct, in love, in faith and in purity."
+- *Significance:* Paul's encouragement to young Timothy demonstrates that godly character and exemplary conduct, not age or credentials, qualify one for spiritual leadership and influence.
+
+**1 Timothy 6:6** - "But godliness with contentment is great gain."
+- *Significance:* Counters materialistic culture by declaring that true wealth consists not in possessions but in godly character combined with satisfaction in God's provision.
+
 ## Key Themes & Messages
 
 ### Major Themes

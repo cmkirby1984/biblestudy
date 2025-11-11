@@ -9,6 +9,43 @@
 **Purpose:** To show God's providence and grace extending to Gentiles, and to trace David's lineage
 **Genre:** Historical narrative (novella)
 
+## One-Sentence Summary
+
+A Moabite widow shows remarkable loyalty to her Israelite mother-in-law and finds redemption through Boaz, demonstrating God's grace to outsiders and His sovereign providence in David's lineage.
+
+## Book Structure
+
+1. **Tragedy and Loyalty** (Chapter 1)
+   - Naomi's family moves to Moab
+   - Death of husbands and sons
+   - Ruth's commitment to follow Naomi
+
+2. **Providence in the Field** (Chapter 2)
+   - Ruth gleans in Boaz's field
+   - Boaz shows kindness and protection
+   - Report to Naomi reveals hope
+
+3. **Bold Faith at the Threshing Floor** (Chapter 3)
+   - Naomi's plan for Ruth
+   - Ruth appeals to Boaz as kinsman-redeemer
+   - Boaz promises to resolve the matter
+
+4. **Redemption and Restoration** (Chapter 4)
+   - Legal proceedings at the city gate
+   - Boaz redeems Ruth and the property
+   - Marriage, birth of Obed, and genealogy to David
+
+## Key Verses
+
+- **Ruth 1:16-17** - "But Ruth replied, 'Don't urge me to leave you or to turn back from you. Where you go I will go, and where you stay I will stay. Your people will be my people and your God my God. Where you die I will die, and there I will be buried. May the LORD deal with me, be it ever so severely, if even death separates you and me.'"
+  - *Significance:* Ruth's covenant loyalty (hesed) exemplifies complete commitment and becomes a model of faithful devotion.
+
+- **Ruth 2:12** - "May the LORD repay you for what you have done. May you be richly rewarded by the LORD, the God of Israel, under whose wings you have come to take refuge."
+  - *Significance:* Boaz's blessing over Ruth reveals that God welcomes all who seek refuge in Him, regardless of ethnic background.
+
+- **Ruth 4:14** - "The women said to Naomi: 'Praise be to the LORD, who this day has not left you without a guardian-redeemer. May he become famous throughout Israel!'"
+  - *Significance:* The community recognizes God's providence in providing redemption, foreshadowing Christ our ultimate Redeemer.
+
 ## Key Themes & Messages
 
 ### Major Themes

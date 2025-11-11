@@ -9,6 +9,45 @@
 **Purpose:** To correct misunderstanding about Christ's return and address idleness
 **Genre:** Epistle; corrective and eschatological
 
+## One-Sentence Summary
+
+The Day of the Lord has not yet come; before Christ returns, the man of lawlessness will be revealed, so stand firm in truth, work diligently, and await God's righteous judgment.
+
+## Book Structure
+
+**I. Introduction: Thanksgiving and Encouragement (1:1-12)**
+- Greeting and thanks for persevering faith
+- God's righteous judgment at Christ's coming (1:5-12)
+
+**II. Correction: The Day of the Lord (2:1-17)**
+- The Day has not yet arrived (2:1-3a)
+- Events preceding Christ's return (2:3b-12)
+  - The rebellion and man of lawlessness
+  - The restrainer
+  - Christ's defeat of the lawless one
+- Stand firm in the truth (2:13-17)
+
+**III. Exhortation: Prayer and Warning (3:1-15)**
+- Request for prayer (3:1-5)
+- Warning against idleness (3:6-15)
+  - Work to eat
+  - Paul's example of hard work
+  - Discipline the idle
+
+**IV. Conclusion (3:16-18)**
+- Prayer for peace and final greeting
+
+## Key Verses
+
+**2 Thessalonians 2:3** - "Don't let anyone deceive you in any way, for that day will not come until the rebellion occurs and the man of lawlessness is revealed, the man doomed to destruction."
+- *Significance:* Corrects false teaching that the Day of the Lord had already arrived, establishing that specific prophetic events (rebellion and revelation of the man of lawlessness) must precede Christ's return.
+
+**2 Thessalonians 3:10** - "For even when we were with you, we gave you this rule: 'The one who is unwilling to work shall not eat.'"
+- *Significance:* Addresses the practical problem of idleness by establishing the biblical principle that able-bodied believers have a responsibility to work for their provision, not live off others' labor.
+
+**2 Thessalonians 2:15** - "So then, brothers and sisters, stand firm and hold fast to the teachings we passed on to you, whether by word of mouth or by letter."
+- *Significance:* The antidote to false teaching and confusion—believers must cling to apostolic doctrine received through Scripture and sound teaching, not novel interpretations or sensational claims.
+
 ## Key Themes & Messages
 
 ### Major Themes

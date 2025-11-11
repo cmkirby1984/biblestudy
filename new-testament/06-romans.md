@@ -9,6 +9,45 @@
 **Purpose:** To explain the gospel systematically and address Jewish-Gentile tensions in preparation for Paul's visit
 **Genre:** Epistle; theological treatise
 
+## One-Sentence Summary
+
+God's righteousness is revealed through the gospel: all humanity stands condemned by sin, but justification comes by faith alone in Christ, empowering believers to live holy lives by the Spirit.
+
+## Book Structure
+
+**I. Introduction (1:1-17)**
+- Greetings and Paul's desire to visit Rome
+- Theme: The gospel is God's power for salvation
+
+**II. Doctrine: God's Righteousness Revealed (1:18-11:36)**
+- *Condemnation:* Universal sin and guilt (1:18-3:20)
+- *Justification:* Righteousness through faith in Christ (3:21-5:21)
+- *Sanctification:* New life in the Spirit (6:1-8:39)
+- *Vindication:* God's plan for Israel (9:1-11:36)
+
+**III. Practice: Righteousness Applied (12:1-15:13)**
+- Living sacrifice and renewed mind (12:1-2)
+- Service in the body of Christ (12:3-8)
+- Love in action (12:9-21)
+- Submission to authorities (13:1-7)
+- Love fulfills the law (13:8-14)
+- Accept the weak in faith (14:1-15:13)
+
+**IV. Conclusion (15:14-16:27)**
+- Paul's ministry and travel plans
+- Personal greetings and final exhortations
+
+## Key Verses
+
+**Romans 1:16-17** - "For I am not ashamed of the gospel, because it is the power of God that brings salvation to everyone who believes: first to the Jew, then to the Gentile. For in the gospel the righteousness of God is revealed—a righteousness that is by faith from first to last."
+- *Significance:* The thesis statement of Romans, declaring that the gospel reveals God's righteousness through faith, establishing the foundation for the entire letter's argument about justification.
+
+**Romans 3:23-24** - "For all have sinned and fall short of the glory of God, and all are justified freely by his grace through the redemption that came by Christ Jesus."
+- *Significance:* Summarizes humanity's universal problem (sin) and God's universal solution (grace through Christ), the cornerstone of Protestant theology and the doctrine of justification by faith alone.
+
+**Romans 8:1** - "Therefore, there is now no condemnation for those who are in Christ Jesus."
+- *Significance:* The triumphant conclusion to Paul's theological argument, assuring believers of complete freedom from guilt and judgment through union with Christ.
+
 ## Key Themes & Messages
 
 ### Major Themes

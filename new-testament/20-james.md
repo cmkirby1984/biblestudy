@@ -9,6 +9,59 @@
 **Purpose:** To encourage practical, authentic Christianity that demonstrates faith through works
 **Genre:** Epistle; wisdom literature with prophetic edge
 
+## One-Sentence Summary
+
+Genuine faith produces practical works of obedience, compassion, and self-control—demonstrating authentic Christianity through righteous action.
+
+## Book Structure
+
+1. **Testing and Trials (1:1-18)**
+   - Joy in trials and perseverance (1:1-4)
+   - Wisdom from God (1:5-8)
+   - Poverty, wealth, and temptation (1:9-18)
+
+2. **Hearing and Doing (1:19-27)**
+   - Quick to listen, slow to speak (1:19-21)
+   - Doers not just hearers (1:22-27)
+
+3. **Faith Without Favoritism (2:1-13)**
+   - Warning against showing partiality
+
+4. **Faith and Works (2:14-26)**
+   - Faith without deeds is dead
+   - Abraham and Rahab as examples
+
+5. **Taming the Tongue (3:1-12)**
+   - Power and danger of speech
+
+6. **True Wisdom (3:13-18)**
+   - Heavenly vs. earthly wisdom
+
+7. **Worldliness and Humility (4:1-17)**
+   - Friendship with world, submission to God
+   - Judging others, planning without God
+
+8. **Warning to the Rich (5:1-6)**
+   - Judgment on oppressive wealth
+
+9. **Patient Endurance (5:7-20)**
+   - Wait patiently for the Lord's return
+   - Prayer, confession, and restoration
+
+## Key Verses
+
+**James 1:2-4** - "Consider it pure joy, my brothers and sisters, whenever you face trials of many kinds, because you know that the testing of your faith produces perseverance. Let perseverance finish its work so that you may be mature and complete, not lacking anything."
+
+*Significance:* Reframes suffering as opportunity for spiritual growth and maturity.
+
+**James 1:22** - "Do not merely listen to the word, and so deceive yourselves. Do what it says."
+
+*Significance:* Emphasizes that authentic faith requires obedient action, not just intellectual agreement.
+
+**James 2:17** - "In the same way, faith by itself, if it is not accompanied by action, is dead."
+
+*Significance:* Defines the inseparable relationship between genuine faith and corresponding works.
+
 ## Key Themes & Messages
 
 ### Major Themes

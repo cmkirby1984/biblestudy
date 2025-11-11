@@ -9,6 +9,52 @@
 **Purpose:** To provide orderly, accurate account of Jesus' life proving He is the Savior for all people
 **Genre:** Gospel; historical narrative with theological purpose
 
+## One-Sentence Summary
+
+The compassionate Savior brings good news of salvation to all people—Jews and Gentiles, rich and poor—through His Spirit-empowered ministry, sacrificial death, and glorious resurrection.
+
+## Book Structure
+
+**I. Prologue (1:1-4)**
+- Luke's historical methodology and dedication to Theophilus
+
+**II. The Births of John and Jesus (1:5-2:52)**
+- Announcements and birth narratives
+- Songs of praise (Magnificat, Benedictus, Nunc Dimittis)
+
+**III. Preparation for Ministry (3:1-4:13)**
+- John the Baptist's ministry
+- Jesus' baptism, genealogy, and temptation
+
+**IV. The Galilean Ministry (4:14-9:50)**
+- Jesus' mission statement in Nazareth (4:14-30)
+- Ministry of teaching, healing, and calling disciples
+- Sermon on the Plain (6:17-49)
+
+**V. The Journey to Jerusalem (9:51-19:27)**
+- Unique to Luke: extensive travel narrative
+- Parables of the lost and found (15)
+- Teaching on prayer, wealth, and the kingdom
+
+**VI. The Jerusalem Ministry (19:28-21:38)**
+- Triumphal entry and temple teaching
+- Controversies and end-times teaching
+
+**VII. The Passion and Resurrection (22:1-24:53)**
+- Last Supper, trials, crucifixion
+- Resurrection appearances and ascension
+
+## Key Verses
+
+**Luke 4:18-19** - *"The Spirit of the Lord is on me, because he has anointed me to proclaim good news to the poor. He has sent me to proclaim freedom for the prisoners and recovery of sight for the blind, to set the oppressed free, to proclaim the year of the Lord's favor."*
+- **Significance:** Jesus' mission statement in Nazareth defines His entire ministry—bringing good news to the marginalized and oppressed.
+
+**Luke 19:10** - *"For the Son of Man came to seek and to save the lost."*
+- **Significance:** Summarizes Luke's central theme of Jesus as Savior, actively pursuing those far from God with compassion.
+
+**Luke 24:46-47** - *"He told them, 'This is what is written: The Messiah will suffer and rise from the dead on the third day, and repentance for the forgiveness of sins will be preached in his name to all nations, beginning at Jerusalem.'"*
+- **Significance:** Connects Jesus' death and resurrection to the worldwide mission, bridging Luke's Gospel with Acts.
+
 ## Key Themes & Messages
 
 ### Major Themes

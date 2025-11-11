@@ -9,6 +9,48 @@
 **Purpose:** To demonstrate the futility of life "under the sun" apart from God, leading to reverent worship
 **Genre:** Wisdom literature; philosophical reflection and poetry
 
+## One-Sentence Summary
+
+Life "under the sun" without God is meaningless vanity, but purpose is found in fearing God, keeping His commandments, and receiving life as His gift.
+
+## Book Structure
+
+1. **Introduction: All is Vanity** (1:1-11)
+   - Opening thesis: "Meaningless! Meaningless!"
+   - Cycles of nature without progress
+
+2. **The Quest for Meaning** (1:12-6:12)
+   - Wisdom pursued but found insufficient (1:12-18)
+   - Pleasure and toil prove empty (2:1-26)
+   - Time and death level all (3:1-4:16)
+   - Religion without heart is vain (5:1-7)
+   - Wealth cannot satisfy (5:8-6:12)
+
+3. **Wisdom for Living Under the Sun** (7:1-12:8)
+   - Better-than proverbs (7:1-14)
+   - Wisdom in moderation (7:15-29)
+   - Submit to authority (8:1-17)
+   - Death comes to all (9:1-12)
+   - Miscellaneous wisdom sayings (9:13-11:6)
+   - Enjoy life while young (11:7-12:8)
+   - Final refrain: "Meaningless! Meaningless!"
+
+4. **Conclusion: Fear God** (12:9-14)
+   - The Teacher's credentials
+   - Ultimate verdict: "Fear God and keep his commandments"
+   - Coming judgment
+
+## Key Verses
+
+**Ecclesiastes 1:2** - "Meaningless! Meaningless!" says the Teacher. "Utterly meaningless! Everything is meaningless."
+- *Significance:* The book's refrain establishes the futility of life viewed from purely earthly perspective, setting up the need for God.
+
+**Ecclesiastes 3:11** - "He has made everything beautiful in its time. He has also set eternity in the human heart; yet no one can fathom what God has done from beginning to end."
+- *Significance:* Explains why earthly things never fully satisfy—humans are made for eternity and only God can fill that void.
+
+**Ecclesiastes 12:13-14** - "Now all has been heard; here is the conclusion of the matter: Fear God and keep his commandments, for this is the duty of all mankind. For God will bring every deed into judgment, including every hidden thing, whether it is good or evil."
+- *Significance:* The book's conclusion provides the answer to life's meaning—purpose found in relationship with God and accountability to Him.
+
 ## Key Themes & Messages
 
 ### Major Themes

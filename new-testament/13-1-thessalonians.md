@@ -9,6 +9,40 @@
 **Purpose:** To encourage persecuted believers and address questions about Christ's return
 **Genre:** Epistle; pastoral and eschatological
 
+## One-Sentence Summary
+
+Live holy lives as you eagerly await Christ's return, when deceased believers will be resurrected and living believers caught up together to be with the Lord forever.
+
+## Book Structure
+
+**I. Personal: Paul's Relationship with the Thessalonians (1:1-3:13)**
+- Thanksgiving for their exemplary faith (1:1-10)
+- Paul's ministry among them (2:1-16)
+- Longing to see them again (2:17-3:13)
+
+**II. Practical: Instructions for Holy Living (4:1-12)**
+- Sanctification and sexual purity (4:1-8)
+- Brotherly love and daily work (4:9-12)
+
+**III. Prophetic: The Coming of the Lord (4:13-5:11)**
+- Comfort concerning deceased believers (4:13-18)
+- Day of the Lord and watchfulness (5:1-11)
+
+**IV. Final Exhortations and Conclusion (5:12-28)**
+- Church life and leadership (5:12-22)
+- Prayer, blessing, and farewell (5:23-28)
+
+## Key Verses
+
+**1 Thessalonians 4:16-17** - "For the Lord himself will come down from heaven, with a loud command, with the voice of the archangel and with the trumpet call of God, and the dead in Christ will rise first. After that, we who are still alive and are left will be caught up together with them in the clouds to meet the Lord in the air. And so we will be with the Lord forever."
+- *Significance:* The foundational passage on the rapture, providing comfort that believers who die before Christ's return will be resurrected and reunited with living believers in the Lord's presence.
+
+**1 Thessalonians 5:16-18** - "Rejoice always, pray continually, give thanks in all circumstances; for this is God's will for you in Christ Jesus."
+- *Significance:* Three concise commands that summarize the Christian life—constant joy, unceasing prayer, and perpetual gratitude form God's will for believers regardless of circumstances.
+
+**1 Thessalonians 4:3** - "It is God's will that you should be sanctified: that you should avoid sexual immorality."
+- *Significance:* Directly states God's clear will for believers' lives—progressive holiness demonstrated especially through sexual purity, countering the permissive culture of Thessalonica.
+
 ## Key Themes & Messages
 
 ### Major Themes

@@ -9,6 +9,56 @@
 **Purpose:** To celebrate the beauty of romantic love within marriage as God's gift
 **Genre:** Love poetry; lyric poetry with dramatic elements
 
+## One-Sentence Summary
+
+A celebration of romantic and sexual love within marriage as God's beautiful gift, expressing mutual desire, delight, and exclusive devotion between lovers.
+
+## Book Structure
+
+The book follows a pattern of seeking, separation, and reunion between the lovers:
+
+1. **The Beginning of Love** (1:1-2:7)
+   - Initial expressions of desire and admiration
+   - First meeting and mutual attraction
+   - Refrain: "Do not arouse love until it so desires"
+
+2. **Courtship and Longing** (2:8-3:5)
+   - The beloved comes seeking
+   - Night search in the city
+   - Finding and holding the beloved
+
+3. **The Wedding Procession** (3:6-5:1)
+   - Solomon's procession
+   - Praising the bride's beauty
+   - Consummation and celebration
+
+4. **Love Tested** (5:2-6:3)
+   - Dream of separation
+   - Searching for the lost lover
+   - Daughters of Jerusalem inquire
+   - Mutual belonging reaffirmed
+
+5. **Renewed Declarations** (6:4-8:4)
+   - Praising the beloved's beauty
+   - Exclusive devotion expressed
+   - Longing for intimacy
+
+6. **The Power of Love** (8:5-14)
+   - Love as strong as death
+   - Many waters cannot quench love
+   - Final expressions of desire
+
+## Key Verses
+
+**Song of Solomon 2:16** - "My beloved is mine and I am his; he browses among the lilies."
+- *Significance:* Expresses the exclusive, mutual belonging and delight that characterizes covenant marriage love.
+
+**Song of Solomon 8:6-7** - "Place me like a seal over your heart, like a seal on your arm; for love is as strong as death, its jealousy unyielding as the grave. It burns like blazing fire, like a mighty flame. Many waters cannot quench love; rivers cannot sweep it away."
+- *Significance:* Celebrates the powerful, unquenchable nature of true love—passionate, exclusive, and permanent.
+
+**Song of Solomon 2:7** - "Daughters of Jerusalem, I charge you by the gazelles and by the does of the field: Do not arouse or awaken love until it so desires."
+- *Significance:* The recurring refrain counsels patience and proper timing in romance; love should not be rushed or forced.
+
 ## Key Themes & Messages
 
 ### Major Themes

@@ -9,6 +9,52 @@
 **Purpose:** To prove Jesus is the promised Messiah and King, fulfilling Old Testament prophecy
 **Genre:** Gospel; theological biography
 
+## One-Sentence Summary
+
+Jesus is the promised Messiah-King who fulfills Old Testament prophecy and establishes God's kingdom through His authoritative teaching, sacrificial death, and victorious resurrection.
+
+## Book Structure
+
+**I. The Coming of the King (1-4)**
+- Birth narratives and genealogy (1-2)
+- John the Baptist and Jesus' baptism (3)
+- Temptation and beginning of ministry (4)
+
+**II. The Sermon on the Mount (5-7)**
+- Kingdom ethics and righteousness
+
+**III. The Authority of the King (8-10)**
+- Ten miracles demonstrating power (8-9)
+- Commissioning of the twelve apostles (10)
+
+**IV. Responses to the King (11-13)**
+- Growing opposition and rejection (11-12)
+- Kingdom parables (13)
+
+**V. The Training of Disciples (14-18)**
+- Jesus withdraws to train the twelve (14-17)
+- Church life and discipline (18)
+
+**VI. The Journey to Jerusalem (19-25)**
+- Teaching on the way to Jerusalem (19-20)
+- Triumphal entry and temple confrontations (21-23)
+- Olivet Discourse on end times (24-25)
+
+**VII. The Passion and Resurrection (26-28)**
+- Betrayal, trial, crucifixion (26-27)
+- Resurrection and Great Commission (28)
+
+## Key Verses
+
+**Matthew 5:17** - *"Do not think that I have come to abolish the Law or the Prophets; I have not come to abolish them but to fulfill them."*
+- **Significance:** Establishes Jesus as the fulfillment of all Old Testament expectations, the central theme of Matthew's Gospel.
+
+**Matthew 16:16-18** - *"Simon Peter answered, 'You are the Messiah, the Son of the living God.' Jesus replied, 'Blessed are you, Simon son of Jonah, for this was not revealed to you by flesh and blood, but by my Father in heaven. And I tell you that you are Peter, and on this rock I will build my church.'"*
+- **Significance:** Peter's confession marks the climax of Jesus' identity revelation and introduces the church that will carry His mission forward.
+
+**Matthew 28:18-20** - *"Then Jesus came to them and said, 'All authority in heaven and on earth has been given to me. Therefore go and make disciples of all nations, baptizing them in the name of the Father and of the Son and of the Holy Spirit, and teaching them to obey everything I have commanded you. And surely I am with you always, to the very end of the age.'"*
+- **Significance:** The Great Commission extends Jesus' messianic authority to all nations and defines the church's ongoing mission.
+
 ## Key Themes & Messages
 
 ### Major Themes

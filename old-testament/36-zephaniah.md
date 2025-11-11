@@ -9,6 +9,30 @@
 **Purpose:** To announce coming Day of the LORD as judgment, calling for repentance before it's too late
 **Genre:** Prophetic oracle; predominantly judgment with promise of restoration
 
+## One-Sentence Summary
+
+Seek the LORD urgently before the terrible Day of the LORD brings universal judgment, after which God will restore a humble remnant with joy.
+
+## Book Structure
+
+**Three Movements of Judgment and Hope (Chapters 1-3)**
+- Chapter 1:1-2:3: Universal judgment announced; urgent call to seek the LORD
+- Chapter 2:4-3:8: Judgment on surrounding nations and Jerusalem
+- Chapter 3:9-20: Promise of restoration; purified remnant; God rejoicing over His people
+
+*Note: Most comprehensive treatment of the Day of the LORD theme in prophetic literature.*
+
+## Key Verses
+
+**Zephaniah 2:3** - "Seek the LORD, all you humble of the land, you who do what he commands. Seek righteousness, seek humility; perhaps you will be sheltered on the day of the LORD's anger."
+*Significance:* Urgent call to actively pursue God, righteousness, and humility before judgment comes - seeking offers hope of protection.
+
+**Zephaniah 3:17** - "The LORD your God is with you, the Mighty Warrior who saves. He will take great delight in you; in his love he will no longer rebuke you, but will rejoice over you with singing."
+*Significance:* Beautiful picture of God's joy over His people - divine delight and singing reverse the theme of judgment, showing restoration's fullness.
+
+**Zephaniah 1:14-15** - "The great day of the LORD is near—near and coming quickly. The cry on the day of the LORD is bitter; the Mighty Warrior shouts his battle cry. That day will be a day of wrath—a day of distress and anguish, a day of trouble and ruin, a day of darkness and gloom."
+*Significance:* Vivid description of the Day of the LORD's terror, establishing urgency for repentance and preparation.
+
 ## Key Themes & Messages
 
 ### Major Themes

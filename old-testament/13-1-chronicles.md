@@ -9,6 +9,42 @@
 **Purpose:** To provide hope and identity to returning exiles by retelling Israel's history with focus on temple worship and God's faithfulness
 **Genre:** Historical narrative with extensive genealogies
 
+## One-Sentence Summary
+
+Post-exilic retelling of Israel's history emphasizes David's righteous reign and temple preparations to encourage returning exiles that God's covenant promises remain valid.
+
+## Book Structure
+
+1. **Genealogies: Israel's Heritage** (Chapters 1-9)
+   - From Adam to the restored community
+   - Twelve tribes traced
+   - Focus on Judah, Levi, and Benjamin
+   - Jerusalem's inhabitants after exile
+
+2. **Saul's Failure** (Chapter 10)
+   - Brief account of Saul's death
+   - Explained as judgment for unfaithfulness
+
+3. **David's Reign and Preparations** (Chapters 11-29)
+   - David established as king in Jerusalem
+   - Bringing the ark to Jerusalem
+   - God's covenant with David
+   - Military victories and administration
+   - Extensive preparations for temple building
+   - Organization of priests, Levites, and musicians
+   - David's charge to Solomon and the people
+
+## Key Verses
+
+- **1 Chronicles 16:11** - "Look to the LORD and his strength; seek his face always."
+  - *Significance:* David's psalm celebrates bringing the ark to Jerusalem, calling God's people to continual worship and dependence.
+
+- **1 Chronicles 17:11-14** - "When your days are over and you go to be with your ancestors, I will raise up your offspring to succeed you, one of your own sons, and I will establish his kingdom... I will set him over my house and my kingdom forever; his throne will be established forever."
+  - *Significance:* The Davidic covenant promises an eternal kingdom, pointing forward to the Messiah.
+
+- **1 Chronicles 29:11** - "Yours, LORD, is the greatness and the power and the glory and the majesty and the splendor, for everything in heaven and earth is yours. Yours, LORD, is the kingdom; you are exalted as head over all."
+  - *Significance:* David's prayer acknowledges God's ultimate sovereignty and ownership of all things.
+
 ## Key Themes & Messages
 
 ### Major Themes

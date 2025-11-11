@@ -9,6 +9,47 @@
 **Purpose:** To instruct Titus on appointing elders and promoting sound doctrine with good works
 **Genre:** Epistle; pastoral instruction
 
+## One-Sentence Summary
+
+Appoint qualified elders to teach sound doctrine that produces good works, knowing that God's grace not only saves but also trains believers in godly living as they await Christ's appearing.
+
+## Book Structure
+
+**I. Introduction (1:1-4)**
+- Greeting from Paul to Titus
+
+**II. Church Leadership: Appoint Qualified Elders (1:5-16)**
+- Qualifications for elders (1:5-9)
+- Rebuke false teachers (1:10-16)
+
+**III. Sound Doctrine and Godly Living (2:1-15)**
+- Instructions for various groups (2:1-10)
+  - Older men and women (2:2-3)
+  - Younger women and men (2:4-6)
+  - Titus himself (2:7-8)
+  - Slaves (2:9-10)
+- Theological foundation: grace teaches godliness (2:11-15)
+
+**IV. Christian Conduct in Society (3:1-11)**
+- Be good citizens (3:1-2)
+- Gospel reminder: saved by mercy, not works (3:3-7)
+- Devote yourself to good works (3:8)
+- Avoid foolish controversies (3:9-11)
+
+**V. Conclusion: Personal Instructions (3:12-15)**
+- Travel plans and greetings
+
+## Key Verses
+
+**Titus 2:11-12** - "For the grace of God has appeared that offers salvation to all people. It teaches us to say 'No' to ungodliness and worldly passions, and to live self-controlled, upright and godly lives in this present age."
+- *Significance:* Reveals the dual purpose of grace—it not only saves but also educates believers in godly living, demonstrating that justification and sanctification are inseparable aspects of God's gracious work.
+
+**Titus 3:5** - "He saved us, not because of righteous things we had done, but because of his mercy. He saved us through the washing of rebirth and renewal by the Holy Spirit."
+- *Significance:* Declares salvation's foundation in God's mercy alone, not human merit, accomplished through the Spirit's regenerating and renewing work—the heart of the gospel message.
+
+**Titus 3:8** - "This is a trustworthy saying. And I want you to stress these things, so that those who have trusted in God may be careful to devote themselves to doing what is good."
+- *Significance:* Connects sound doctrine to practical outcome—genuine faith in God naturally produces devotion to good works, demonstrating that orthodoxy and orthopraxy are inseparably linked.
+
 ## Key Themes & Messages
 
 ### Major Themes

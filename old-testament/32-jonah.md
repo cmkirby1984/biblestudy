@@ -9,6 +9,29 @@
 **Purpose:** To demonstrate God's mercy extends even to pagan enemies, and to challenge nationalistic prejudice
 **Genre:** Prophetic narrative; historical account with parabolic elements
 
+## One-Sentence Summary
+
+God's compassion extends even to Israel's cruel enemies when they repent, challenging nationalistic prejudice and revealing divine mercy triumphs over judgment.
+
+## Book Structure
+
+**Four Episodes (Chapters 1-4)**
+- Chapter 1: Jonah flees from God's call; storm at sea; thrown overboard
+- Chapter 2: Inside the fish; Jonah's prayer of thanksgiving; delivered to land
+- Chapter 3: Second call; Jonah preaches; Nineveh repents; God relents from judgment
+- Chapter 4: Jonah's anger at God's mercy; lesson of the plant; God's compassion defended
+
+## Key Verses
+
+**Jonah 4:2** - "He prayed to the LORD, 'Isn't this what I said, LORD, when I was still at home? That is what I tried to forestall by fleeing to Tarshish. I knew that you are a gracious and compassionate God, slow to anger and abounding in love, a God who relents from sending calamity.'"
+*Significance:* Jonah's complaint reveals he fled because he knew God's merciful character - challenging readers who resent grace shown to "undeserving" others.
+
+**Jonah 2:9** - "But I, with shouts of thanksgiving, will sacrifice to you. What I have vowed I will make good. I will say, 'Salvation comes from the LORD.'"
+*Significance:* Core confession that deliverance is God's work alone, not human merit - foundation for understanding grace and salvation.
+
+**Jonah 4:11** - "And should I not have concern for the great city of Nineveh, in which there are more than a hundred and twenty thousand people who cannot tell their right hand from their left—and also many animals?"
+*Significance:* God's final question reveals His heart for all people, even pagan enemies - His compassion extends beyond Israel to entire world.
+
 ## Key Themes & Messages
 
 ### Major Themes

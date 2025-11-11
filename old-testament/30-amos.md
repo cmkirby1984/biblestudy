@@ -9,6 +9,36 @@
 **Purpose:** To pronounce judgment on Israel for social injustice and religious hypocrisy
 **Genre:** Prophetic oracle; poetry and visions
 
+## One-Sentence Summary
+
+God demands justice and righteousness flowing like water, rejecting hypocritical worship divorced from ethical treatment of the poor and oppressed.
+
+## Book Structure
+
+**Part 1: Oracles Against the Nations (Chapters 1-2)**
+- Chapters 1-2: Judgment on surrounding nations (Damascus, Gaza, Tyre, Edom, Ammon, Moab)
+- Chapter 2: Judgment on Judah and especially Israel for injustice
+
+**Part 2: Sermons Against Israel (Chapters 3-6)**
+- Chapter 3: Privilege brings responsibility; Israel's special judgment
+- Chapters 4-5: Religious hypocrisy condemned; call to seek the LORD
+- Chapter 6: Woe to the complacent; luxury while oppressing the poor
+
+**Part 3: Five Visions of Judgment (Chapters 7-9)**
+- Chapters 7-8: Visions of locusts, fire, plumb line, summer fruit; confrontation with Amaziah
+- Chapter 9: Vision of altar; judgment inescapable; promise of restoration
+
+## Key Verses
+
+**Amos 5:24** - "But let justice roll on like a river, righteousness like a never-failing stream!"
+*Significance:* Iconic call for continuous, abundant justice and righteousness as God's requirement - quoted by Martin Luther King Jr. in civil rights movement.
+
+**Amos 5:21-23** - "I hate, I despise your religious festivals; your assemblies are a stench to me... Away with the noise of your songs! I will not listen to the music of your harps."
+*Significance:* God's fierce rejection of worship separated from justice - religious activity without ethical living is detestable to Him.
+
+**Amos 3:2** - "You only have I chosen of all the families of the earth; therefore I will punish you for all your sins."
+*Significance:* Privilege and election increase accountability rather than guarantee protection - greater blessing brings greater responsibility.
+
 ## Key Themes & Messages
 
 ### Major Themes

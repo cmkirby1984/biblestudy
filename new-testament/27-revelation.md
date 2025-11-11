@@ -9,6 +9,72 @@
 **Purpose:** To encourage persecuted Christians with vision of Christ's ultimate victory and God's sovereign plan
 **Genre:** Apocalyptic prophecy; highly symbolic imagery
 
+## One-Sentence Summary
+
+Christ will return victoriously to judge evil and establish His eternal kingdom where God dwells forever with His redeemed people.
+
+## Book Structure
+
+1. **Prologue and Vision of Christ (1:1-20)**
+   - Introduction and blessing
+   - Vision of glorified Christ among lampstands
+
+2. **Seven Churches (2:1-3:22)**
+   - Letters to Ephesus, Smyrna, Pergamum, Thyatira, Sardis, Philadelphia, Laodicea
+   - Commendations, corrections, and calls to overcome
+
+3. **Throne Room Vision (4:1-5:14)**
+   - God on His throne receiving worship
+   - The Lamb worthy to open the scroll
+
+4. **Seven Seals (6:1-8:1)**
+   - First four: white, red, black, and pale horses
+   - Fifth: martyrs crying out
+   - Sixth: cosmic disturbances
+   - Interlude: 144,000 sealed
+   - Seventh: silence in heaven
+
+5. **Seven Trumpets (8:2-11:19)**
+   - Judgments on earth, sea, fresh water, heavenly bodies, demonic locusts, armies
+   - Interlude: little scroll, two witnesses
+   - Seventh: kingdom proclamation
+
+6. **Seven Signs and Spiritual Warfare (12:1-14:20)**
+   - Woman, dragon, male child (12:1-6)
+   - War in heaven (12:7-17)
+   - Beast from sea and earth (13:1-18)
+   - Lamb and 144,000 (14:1-5)
+   - Three angels, harvest judgment (14:6-20)
+
+7. **Seven Bowls of God's Wrath (15:1-16:21)**
+   - Final, complete judgments poured out
+   - Sores, sea to blood, rivers to blood, scorching sun, darkness, Euphrates dried, earthquakes
+
+8. **Fall of Babylon and Christ's Victory (17:1-20:15)**
+   - Babylon's judgment (17:1-18:24)
+   - Christ's return and victory (19:1-21)
+   - Millennium, Satan's defeat, final judgment (20:1-15)
+
+9. **New Creation (21:1-22:21)**
+   - New heaven and new earth
+   - New Jerusalem
+   - Tree of life and river of life
+   - Jesus is coming soon
+
+## Key Verses
+
+**Revelation 1:7** - "Look, he is coming with the clouds, and every eye will see him, even those who pierced him; and all peoples on earth will mourn because of him. So shall it be! Amen."
+
+*Significance:* Announces the central theme—Christ's visible, universal return that will vindicate believers and judge unbelievers.
+
+**Revelation 5:9-10** - "And they sang a new song, saying: 'You are worthy to take the scroll and to open its seals, because you were slain, and with your blood you purchased for God persons from every tribe and language and people and nation. You have made them to be a kingdom and priests to serve our God, and they will reign on the earth.'"
+
+*Significance:* Celebrates the Lamb's worthiness through His sacrificial death that redeems people from all nations for God's kingdom.
+
+**Revelation 21:3-4** - "And I heard a loud voice from the throne saying, 'Look! God's dwelling place is now among the people, and he will dwell with them. They will be his people, and God himself will be with them and be their God. He will wipe every tear from their eyes. There will be no more death or mourning or crying or pain, for the old order of things has passed away.'"
+
+*Significance:* Describes the ultimate fulfillment of redemption—God dwelling eternally with His people in perfect peace and joy.
+
 ## Key Themes & Messages
 
 ### Major Themes

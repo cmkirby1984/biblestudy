@@ -9,6 +9,41 @@
 **Purpose:** To appeal to Philemon to receive back Onesimus as a brother in Christ, not just a slave
 **Genre:** Epistle; personal appeal
 
+## One-Sentence Summary
+
+Paul appeals to Philemon to receive his runaway slave Onesimus back as a beloved brother in Christ, offering to pay any debt—a beautiful picture of Christian reconciliation and the gospel's power to transform social relationships.
+
+## Book Structure
+
+**I. Introduction: Greeting and Thanksgiving (1-7)**
+- Greeting to Philemon and household
+- Thanksgiving for Philemon's love and faith
+
+**II. Appeal: Receive Onesimus as a Brother (8-21)**
+- Paul's appeal based on love, not authority (8-9)
+- Onesimus transformed—now truly "useful" (10-11)
+- Paul sends him back, hopes Philemon will receive him (12-14)
+- Providence: separation for eternal reunion (15-16)
+- Receive him as you would receive Paul (17)
+- Paul assumes Onesimus' debt (18-19)
+- Confidence in Philemon's obedience (20-21)
+
+**III. Conclusion: Personal Matters and Benediction (22-25)**
+- Request to prepare guest room
+- Greetings from companions
+- Final blessing
+
+## Key Verses
+
+**Philemon 16** - "No longer as a slave, but better than a slave, as a dear brother. He is very dear to me but even dearer to you, both as a fellow man and as a brother in the Lord."
+- *Significance:* The heart of Paul's appeal—the gospel fundamentally redefines relationships, transforming a runaway slave into a beloved spiritual brother whose value transcends social status.
+
+**Philemon 18-19** - "If he has done you any wrong or owes you anything, charge it to me. I, Paul, am writing this with my own hand. I will pay it back—not to mention that you owe me your very self."
+- *Significance:* Paul's offer to assume Onesimus' debt beautifully illustrates Christ's substitutionary atonement—taking another's guilt and paying their penalty while gently reminding Philemon of his own spiritual debt.
+
+**Philemon 6** - "I pray that your partnership with us in the faith may be effective in deepening your understanding of every good thing we share for the sake of Christ."
+- *Significance:* Establishes the foundation for Paul's appeal—true Christian fellowship produces deeper understanding of our shared blessings in Christ, motivating generous, gracious responses to one another.
+
 ## Key Themes & Messages
 
 ### Major Themes

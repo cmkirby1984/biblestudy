@@ -9,6 +9,46 @@
 **Purpose:** "That you may believe that Jesus is the Christ, the Son of God, and that by believing you may have life in his name" (20:31)
 **Genre:** Gospel; theological reflection on Jesus' identity
 
+## One-Sentence Summary
+
+The eternal Word became flesh to reveal the Father's glory and give eternal life to all who believe in Him as the divine Son of God.
+
+## Book Structure
+
+**I. Prologue: The Word Became Flesh (1:1-18)**
+- Jesus' divine nature and incarnation
+
+**II. The Book of Signs: Public Ministry (1:19-12:50)**
+- Seven miraculous signs revealing Jesus' glory
+  1. Water to wine at Cana (2:1-11)
+  2. Healing the official's son (4:46-54)
+  3. Healing the paralytic at Bethesda (5:1-15)
+  4. Feeding the 5,000 (6:1-15)
+  5. Walking on water (6:16-21)
+  6. Healing the blind man (9:1-41)
+  7. Raising Lazarus (11:1-44)
+- Seven "I AM" statements declaring Jesus' identity
+- Growing belief and unbelief
+
+**III. The Book of Glory: Private Ministry (13:1-20:31)**
+- The Upper Room: washing feet and farewell discourse (13-17)
+- Passion: arrest, trials, crucifixion (18-19)
+- Resurrection appearances and purpose statement (20)
+
+**IV. Epilogue: Post-Resurrection Appearances (21:1-25)**
+- Restoration of Peter and the beloved disciple
+
+## Key Verses
+
+**John 1:1, 14** - *"In the beginning was the Word, and the Word was with God, and the Word was God... The Word became flesh and made his dwelling among us. We have seen his glory, the glory of the one and only Son, who came from the Father, full of grace and truth."*
+- **Significance:** John's majestic prologue establishes Jesus' eternal divinity and incarnation—the foundation of the entire Gospel.
+
+**John 3:16** - *"For God so loved the world that he gave his one and only Son, that whoever believes in him shall not perish but have eternal life."*
+- **Significance:** The most famous verse in the Bible encapsulates the Gospel message—God's love, Jesus' mission, and the way of salvation through belief.
+
+**John 20:30-31** - *"Jesus performed many other signs in the presence of his disciples, which are not recorded in this book. But these are written that you may believe that Jesus is the Messiah, the Son of God, and that by believing you may have life in his name."*
+- **Significance:** John's explicit purpose statement—everything in the Gospel aims to produce life-giving faith in Jesus as divine Messiah.
+
 ## Key Themes & Messages
 
 ### Major Themes

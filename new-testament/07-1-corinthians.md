@@ -9,6 +9,44 @@
 **Purpose:** To correct divisions, immorality, and misunderstandings about Christian living and spiritual gifts
 **Genre:** Epistle; pastoral correction and instruction
 
+## One-Sentence Summary
+
+Paul addresses divisions, immorality, and disorder in Corinth by calling believers to unity in Christ, sexual purity, love-motivated use of freedom and spiritual gifts, and confidence in the resurrection.
+
+## Book Structure
+
+**I. Introduction (1:1-9)**
+- Greeting and thanksgiving for God's grace
+
+**II. Correction: Addressing Church Problems (1:10-6:20)**
+- Divisions over leaders (1:10-4:21)
+- Sexual immorality and discipline (5:1-13)
+- Lawsuits among believers (6:1-11)
+- Sexual purity and the body (6:12-20)
+
+**III. Instruction: Answers to Questions (7:1-16:4)**
+- *Marriage and singleness* (7:1-40)
+- *Food sacrificed to idols and Christian freedom* (8:1-11:1)
+- *Worship practices* (11:2-34)
+- *Spiritual gifts and love* (12:1-14:40)
+- *Resurrection of the dead* (15:1-58)
+- *The collection for Jerusalem* (16:1-4)
+
+**IV. Conclusion (16:5-24)**
+- Paul's travel plans
+- Final exhortations and greetings
+
+## Key Verses
+
+**1 Corinthians 1:18** - "For the message of the cross is foolishness to those who are perishing, but to us who are being saved it is the power of God."
+- *Significance:* Establishes the central contrast between worldly wisdom and divine power, showing that God's way of salvation overturns human expectations and values.
+
+**1 Corinthians 10:31** - "So whether you eat or drink or whatever you do, do it all for the glory of God."
+- *Significance:* Provides the guiding principle for Christian liberty—all actions should ultimately bring glory to God, not merely satisfy personal freedom or preference.
+
+**1 Corinthians 13:13** - "And now these three remain: faith, hope and love. But the greatest of these is love."
+- *Significance:* Concludes the famous "love chapter" by elevating love as the supreme Christian virtue that outlasts even the spiritual gifts of faith and hope.
+
 ## Key Themes & Messages
 
 ### Major Themes

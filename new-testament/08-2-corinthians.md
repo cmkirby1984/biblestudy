@@ -9,6 +9,47 @@
 **Purpose:** To defend Paul's apostolic authority, restore relationship, and encourage generous giving
 **Genre:** Epistle; personal and apologetic
 
+## One-Sentence Summary
+
+Paul defends his apostolic ministry by revealing how God's power is perfected through weakness, calls believers to the ministry of reconciliation, and appeals for generous giving modeled after Christ's sacrificial example.
+
+## Book Structure
+
+**I. Introduction and Comfort in Affliction (1:1-11)**
+- Greeting and praise for God's comfort in suffering
+
+**II. Defense: Paul's Ministry Explained (1:12-7:16)**
+- *Integrity of Paul's conduct and plans* (1:12-2:4)
+- *Forgiveness and restoration* (2:5-11)
+- *New covenant ministry* (2:12-6:10)
+- *Appeal for reconciliation* (6:11-7:16)
+
+**III. Appeal: Generous Giving (8:1-9:15)**
+- Example of Macedonian churches (8:1-7)
+- Christ's example of giving (8:8-15)
+- Titus' mission to collect the offering (8:16-9:5)
+- Principles and blessings of generosity (9:6-15)
+
+**IV. Vindication: Paul's Apostolic Authority (10:1-13:10)**
+- Defense against false apostles (10:1-18)
+- Paul's credentials and suffering (11:1-33)
+- Visions, revelations, and thorn in flesh (12:1-10)
+- Final warnings and concerns (12:11-13:10)
+
+**V. Conclusion (13:11-14)**
+- Final exhortations and benediction
+
+## Key Verses
+
+**2 Corinthians 4:7** - "But we have this treasure in jars of clay to show that this all-surpassing power is from God and not from us."
+- *Significance:* Captures Paul's theology of ministry—God deliberately uses weak, fragile human vessels to demonstrate that transforming power comes from Him alone, not human strength or credentials.
+
+**2 Corinthians 5:17** - "Therefore, if anyone is in Christ, the new creation has come: The old has gone, the new is here!"
+- *Significance:* Declares the radical transformation that occurs at conversion, emphasizing that union with Christ brings complete spiritual renewal and a fundamentally new identity.
+
+**2 Corinthians 12:9** - "But he said to me, 'My grace is sufficient for you, for my power is made perfect in weakness.' Therefore I will boast all the more gladly about my weaknesses, so that Christ's power may rest on me."
+- *Significance:* God's response to Paul's plea for relief reveals the paradoxical principle that divine strength is most fully displayed through human weakness, transforming limitation into opportunity for God's glory.
+
 ## Key Themes & Messages
 
 ### Major Themes

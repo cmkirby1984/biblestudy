@@ -9,6 +9,35 @@
 **Purpose:** To encourage temple completion through visions of God's future plans and the coming Messiah
 **Genre:** Prophetic apocalyptic with visions; messianic prophecy; oracles
 
+## One-Sentence Summary
+
+Not by might but by God's Spirit, the Messiah will come as humble King and pierced Savior to establish His eternal reign.
+
+## Book Structure
+
+**Part 1: Eight Night Visions and Crowning (Chapters 1-6)**
+- Chapters 1-6: Eight symbolic visions revealing God's plans for restoration and judgment
+
+**Part 2: Questions About Fasting (Chapters 7-8)**
+- Chapters 7-8: True worship versus ritual; promises of restoration and blessing
+
+**Part 3: Two Prophetic Oracles (Chapters 9-14)**
+- Chapters 9-11: First oracle - Coming King and rejection of Shepherd
+- Chapters 12-14: Second oracle - Nations judged; Messiah pierced; living water flows; LORD reigns
+
+*Note: Most messianic prophecies outside Isaiah, with detailed predictions of Christ's first and second coming.*
+
+## Key Verses
+
+**Zechariah 4:6** - "'Not by might nor by power, but by my Spirit,' says the LORD Almighty."
+*Significance:* Core principle for God's work - success comes through the Holy Spirit's power, not human strength or strategy; applies to all ministry.
+
+**Zechariah 9:9** - "Rejoice greatly, Daughter Zion! Shout, Daughter Jerusalem! See, your king comes to you, righteous and victorious, lowly and riding on a donkey, on a colt, the foal of a donkey."
+*Significance:* Messianic prophecy fulfilled on Palm Sunday - King comes in humility and peace, not military conquest; revolutionary redefinition of kingship.
+
+**Zechariah 12:10** - "And I will pour out on the house of David and the inhabitants of Jerusalem a spirit of grace and supplication. They will look on me, the one they have pierced, and they will mourn for him as one mourns for an only child."
+*Significance:* Prophesies Christ's crucifixion and future recognition - the pierced one is identified with the LORD Himself, revealing Messiah's divinity.
+
 ## Key Themes & Messages
 
 ### Major Themes

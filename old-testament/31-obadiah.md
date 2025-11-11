@@ -9,6 +9,30 @@
 **Purpose:** To pronounce judgment on Edom for violence against Judah and to promise Israel's restoration
 **Genre:** Prophetic oracle against a nation; shortest book in Old Testament
 
+## One-Sentence Summary
+
+Pride brings Edom's downfall for betraying brother nation Judah, while God's kingdom ultimately prevails and judges all nations.
+
+## Book Structure
+
+**Single Prophetic Oracle (21 verses)**
+- Verses 1-9: Judgment pronounced on Edom's pride and false security
+- Verses 10-14: Edom's sins detailed - violence and betrayal against Judah
+- Verses 15-21: The Day of the LORD; Edom's destruction; Israel's restoration and triumph
+
+*Note: Obadiah is the shortest book in the Old Testament, focused entirely on judgment against Edom.*
+
+## Key Verses
+
+**Obadiah 3-4** - "The pride of your heart has deceived you, you who live in the clefts of the rocks and make your home on the heights, you who say to yourself, 'Who can bring me down to the ground?' Though you soar like the eagle and make your nest among the stars, from there I will bring you down, declares the LORD."
+*Significance:* Pride based on natural advantages or achievements leads to inevitable downfall - no height is beyond God's reach to humble.
+
+**Obadiah 15** - "The day of the LORD is near for all nations. As you have done, it will be done to you; your deeds will return upon your own head."
+*Significance:* Principle of divine retribution - how we treat others, especially the vulnerable, determines how God will judge us.
+
+**Obadiah 21** - "Deliverers will go up on Mount Zion to govern the mountains of Esau. And the kingdom will be the LORD's."
+*Significance:* Final triumph belongs to God's kingdom - ultimately fulfilled in Christ's eternal reign over all nations and powers.
+
 ## Key Themes & Messages
 
 ### Major Themes

@@ -9,6 +9,33 @@
 **Purpose:** To call for repentance using locust plague as picture of coming Day of the LORD
 **Genre:** Prophetic oracle; poetry
 
+## One-Sentence Summary
+
+The devastating Day of the LORD calls for urgent repentance, followed by God's promise to pour out His Spirit on all people and restore His land.
+
+## Book Structure
+
+**Part 1: The Locust Plague and Call to Repentance (Chapters 1:1-2:17)**
+- Chapter 1: Unprecedented locust devastation; call to mourning and fasting
+- Chapter 2:1-11: The Day of the LORD approaches like invading army
+- Chapter 2:12-17: Urgent call to heartfelt repentance; communal prayer and fasting
+
+**Part 2: God's Response and Promises (Chapters 2:18-3:21)**
+- Chapter 2:18-27: God relents; promises restoration and abundant blessings
+- Chapter 2:28-32: Spirit poured out on all people; signs before the Day of the LORD
+- Chapter 3: Judgment on the nations; vindication and blessing for God's people
+
+## Key Verses
+
+**Joel 2:13** - "Rend your heart and not your garments. Return to the LORD your God, for he is gracious and compassionate, slow to anger and abounding in love, and he relents from sending calamity."
+*Significance:* Calls for genuine internal repentance, not mere external ritual, grounded in confidence in God's merciful character.
+
+**Joel 2:28-29** - "And afterward, I will pour out my Spirit on all people. Your sons and daughters will prophesy, your old men will dream dreams, your young men will see visions. Even on my servants, both men and women, I will pour out my Spirit in those days."
+*Significance:* Prophesies universal outpouring of the Spirit fulfilled at Pentecost (Acts 2), democratizing access to God across age, gender, and social status.
+
+**Joel 2:32** - "And everyone who calls on the name of the LORD will be saved; for on Mount Zion and in Jerusalem there will be deliverance, as the LORD has said, even among the survivors whom the LORD calls."
+*Significance:* Promise of salvation to all who call on God's name - quoted in Romans 10:13 as gospel invitation to everyone.
+
 ## Key Themes & Messages
 
 ### Major Themes
