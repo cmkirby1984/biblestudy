@@ -13,7 +13,7 @@ Fast lookup tables and one-page overviews for teaching, study prep, or quick rev
 
 Comprehensive tables with summaries, themes, key verses, and practical applications for all 66 books.
 
-### 📖 [Old Testament Quick Reference]({{ '/quick-reference/old-testament-overview/' | relative_url }})
+### 📖 [Old Testament Quick Reference]({{ '/quick-reference/old-testament-overview' | relative_url }})
 A complete one-page table featuring all 39 Old Testament books organized by category:
 - The Law (5 books)
 - Historical Books (12 books)
@@ -31,7 +31,7 @@ Each entry includes:
 
 ---
 
-### 📖 [New Testament Quick Reference]({{ '/quick-reference/new-testament-overview/' | relative_url }})
+### 📖 [New Testament Quick Reference]({{ '/quick-reference/new-testament-overview' | relative_url }})
 A complete one-page table featuring all 27 New Testament books organized by category:
 - The Gospels (4 books)
 - History (1 book)
@@ -63,11 +63,11 @@ Each entry includes:
 
 Looking for more in-depth resources?
 
-- **[Thematic Index]({{ '/indexes/thematic-index/' | relative_url }})** - Explore 80+ themes across Scripture
-- **[Character Index]({{ '/indexes/character-index/' | relative_url }})** - Study 39 major biblical figures
-- **[Biblical Timeline]({{ '/timeline/' | relative_url }})** - Understand chronological context
-- **[Maps & Geography]({{ '/resources/maps/' | relative_url }})** - Visualize biblical locations
-- **[Printing Guide]({{ '/resources/printing-guide/' | relative_url }})** - Create PDFs for offline study
+- **[Thematic Index]({{ '/indexes/thematic-index' | relative_url }})** - Explore 80+ themes across Scripture
+- **[Character Index]({{ '/indexes/character-index' | relative_url }})** - Study 39 major biblical figures
+- **[Biblical Timeline]({{ '/timeline' | relative_url }})** - Understand chronological context
+- **[Maps & Geography]({{ '/resources/maps' | relative_url }})** - Visualize biblical locations
+- **[Printing Guide]({{ '/resources/printing-guide' | relative_url }})** - Create PDFs for offline study
 
 ---
 

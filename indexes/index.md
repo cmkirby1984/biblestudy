@@ -9,7 +9,7 @@ Comprehensive indexes to help you explore themes, topics, and people throughout 
 
 ---
 
-## 📚 [Thematic Index]({{ '/indexes/thematic-index/' | relative_url }})
+## 📚 [Thematic Index]({{ '/indexes/thematic-index' | relative_url }})
 
 A comprehensive topical index showing where major themes appear throughout Scripture. Perfect for topical studies that span multiple books.
 
@@ -34,7 +34,7 @@ A comprehensive topical index showing where major themes appear throughout Scrip
 
 ---
 
-## 👥 [Character Index]({{ '/indexes/character-index/' | relative_url }})
+## 👥 [Character Index]({{ '/indexes/character-index' | relative_url }})
 
 A guide to 39 major biblical figures, their stories, and the lessons we can learn from their lives.
 
@@ -66,11 +66,11 @@ A guide to 39 major biblical figures, their stories, and the lessons we can lear
 
 Explore other helpful resources:
 
-- **[Old Testament Quick Reference]({{ '/quick-reference/old-testament-overview/' | relative_url }})** - All 39 OT books in one table
-- **[New Testament Quick Reference]({{ '/quick-reference/new-testament-overview/' | relative_url }})** - All 27 NT books in one table
-- **[Biblical Timeline]({{ '/timeline/' | relative_url }})** - Chronological overview of Bible history
-- **[Maps & Geography]({{ '/resources/maps/' | relative_url }})** - Biblical locations and journeys
-- **[Printing Guide]({{ '/resources/printing-guide/' | relative_url }})** - Create PDFs for offline study
+- **[Old Testament Quick Reference]({{ '/quick-reference/old-testament-overview' | relative_url }})** - All 39 OT books in one table
+- **[New Testament Quick Reference]({{ '/quick-reference/new-testament-overview' | relative_url }})** - All 27 NT books in one table
+- **[Biblical Timeline]({{ '/timeline' | relative_url }})** - Chronological overview of Bible history
+- **[Maps & Geography]({{ '/resources/maps' | relative_url }})** - Biblical locations and journeys
+- **[Printing Guide]({{ '/resources/printing-guide' | relative_url }})** - Create PDFs for offline study
 
 ---
 

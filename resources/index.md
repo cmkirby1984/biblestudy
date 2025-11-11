@@ -9,7 +9,7 @@ Additional tools and resources to enhance your Bible study experience.
 
 ---
 
-## 🗺️ [Maps & Geography]({{ '/resources/maps/' | relative_url }})
+## 🗺️ [Maps & Geography]({{ '/resources/maps' | relative_url }})
 
 Understanding the geography of Bible lands enriches your study by providing context for events, journeys, and narratives.
 
@@ -38,7 +38,7 @@ Understanding the geography of Bible lands enriches your study by providing cont
 
 ---
 
-## 🖨️ [Printing Guide]({{ '/resources/printing-guide/' | relative_url }})
+## 🖨️ [Printing Guide]({{ '/resources/printing-guide' | relative_url }})
 
 Instructions for creating print-friendly versions and PDFs of this Bible study guide for offline use.
 
@@ -71,13 +71,13 @@ Instructions for creating print-friendly versions and PDFs of this Bible study g
 Explore other resources to deepen your Bible study:
 
 ### Quick References
-- **[Old Testament Overview]({{ '/quick-reference/old-testament-overview/' | relative_url }})** - All 39 OT books in one table
-- **[New Testament Overview]({{ '/quick-reference/new-testament-overview/' | relative_url }})** - All 27 NT books in one table
+- **[Old Testament Overview]({{ '/quick-reference/old-testament-overview' | relative_url }})** - All 39 OT books in one table
+- **[New Testament Overview]({{ '/quick-reference/new-testament-overview' | relative_url }})** - All 27 NT books in one table
 
 ### Indexes & Timeline
-- **[Thematic Index]({{ '/indexes/thematic-index/' | relative_url }})** - 80+ themes across Scripture
-- **[Character Index]({{ '/indexes/character-index/' | relative_url }})** - 39 major biblical figures
-- **[Biblical Timeline]({{ '/timeline/' | relative_url }})** - Chronological overview
+- **[Thematic Index]({{ '/indexes/thematic-index' | relative_url }})** - 80+ themes across Scripture
+- **[Character Index]({{ '/indexes/character-index' | relative_url }})** - 39 major biblical figures
+- **[Biblical Timeline]({{ '/timeline' | relative_url }})** - Chronological overview
 
 ### Book Studies
 - **[Old Testament Books]({{ '/old-testament/' | relative_url }})** - All 39 books with detailed studies

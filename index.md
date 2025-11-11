@@ -22,17 +22,17 @@ Detailed studies for all 66 books including:
 - Recommended commentaries
 
 ### 📊 Quick Reference Tables
-- [Old Testament Overview]({{ '/quick-reference/old-testament-overview/' | relative_url }}) - All 39 books at a glance
-- [New Testament Overview]({{ '/quick-reference/new-testament-overview/' | relative_url }}) - All 27 books at a glance
+- [Old Testament Overview]({{ '/quick-reference/old-testament-overview' | relative_url }}) - All 39 books at a glance
+- [New Testament Overview]({{ '/quick-reference/new-testament-overview' | relative_url }}) - All 27 books at a glance
 
 Perfect for teaching prep, personal study, or quick lookup!
 
 ### 🔍 Study Resources
-- **[Thematic Index]({{ '/indexes/thematic-index/' | relative_url }})** - 80+ topics showing where themes appear throughout Scripture
-- **[Character Index]({{ '/indexes/character-index/' | relative_url }})** - 39 major biblical figures with lessons from their lives
-- **[Biblical Timeline]({{ '/timeline/' | relative_url }})** - Chronological overview of Bible history
-- **[Maps & Geography]({{ '/resources/maps/' | relative_url }})** - Biblical locations, distances, and map resources
-- **[Printing Guide]({{ '/resources/printing-guide/' | relative_url }})** - Create PDFs and print versions
+- **[Thematic Index]({{ '/indexes/thematic-index' | relative_url }})** - 80+ topics showing where themes appear throughout Scripture
+- **[Character Index]({{ '/indexes/character-index' | relative_url }})** - 39 major biblical figures with lessons from their lives
+- **[Biblical Timeline]({{ '/timeline' | relative_url }})** - Chronological overview of Bible history
+- **[Maps & Geography]({{ '/resources/maps' | relative_url }})** - Biblical locations, distances, and map resources
+- **[Printing Guide]({{ '/resources/printing-guide' | relative_url }})** - Create PDFs and print versions
 
 ### ✨ Interactive Features
 - **Search** - Find any book or topic instantly (press `/` to search)
@@ -93,7 +93,7 @@ Revelation and future hope
 ## How to Use This Study Guide
 
 1. **Sequential Study** - Read through the books in order to understand the biblical narrative
-2. **Topical Study** - Use the [Thematic Index]({{ '/indexes/thematic-index/' | relative_url }}) to explore themes across multiple books
+2. **Topical Study** - Use the [Thematic Index]({{ '/indexes/thematic-index' | relative_url }}) to explore themes across multiple books
 3. **Book Study** - Deep dive into individual books with overviews and themes as your foundation
 4. **Devotional Reading** - Use practical applications for daily reflection and spiritual growth
 5. **Teaching Prep** - Use quick reference tables and summaries for lesson planning
@@ -111,14 +111,14 @@ Start here:
 
 ### Looking for Something Specific?
 - **Press `/`** to search for any book or topic
-- Browse the **[Thematic Index]({{ '/indexes/thematic-index/' | relative_url }})** for topics like faith, grace, prayer, or justice
-- Check the **[Character Index]({{ '/indexes/character-index/' | relative_url }})** to study biblical figures
-- View the **[Timeline]({{ '/timeline/' | relative_url }})** to understand chronological context
+- Browse the **[Thematic Index]({{ '/indexes/thematic-index' | relative_url }})** for topics like faith, grace, prayer, or justice
+- Check the **[Character Index]({{ '/indexes/character-index' | relative_url }})** to study biblical figures
+- View the **[Timeline]({{ '/timeline' | relative_url }})** to understand chronological context
 
 ### Want to Go Deeper?
 - Each book includes **recommended commentaries** for further study
-- Use the **[Maps & Geography]({{ '/resources/maps/' | relative_url }})** to visualize biblical locations
-- Print study sheets using the **[Printing Guide]({{ '/resources/printing-guide/' | relative_url }})**
+- Use the **[Maps & Geography]({{ '/resources/maps' | relative_url }})** to visualize biblical locations
+- Print study sheets using the **[Printing Guide]({{ '/resources/printing-guide' | relative_url }})**
 
 ---
 
