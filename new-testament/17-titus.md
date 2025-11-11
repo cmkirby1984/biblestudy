@@ -102,3 +102,19 @@ Titus provides practical instruction for establishing healthy churches in Crete.
 - Meditate on how grace both saves and trains - avoid separating justification from sanctification in your understanding or practice
 - Examine whether your beliefs are producing good works - doctrine that doesn't change behavior isn't truly believed
 - Balance truth and grace by holding firmly to sound doctrine while showing gentleness and courtesy toward all people
+
+## Recommended Resources
+
+### Commentaries
+
+**Best Overall**
+The Letters to Timothy and Titus (Pillar New Testament Commentary) by Philip H. Towner - Excellent treatment of Paul's instructions on sound doctrine producing good works.
+
+**For Beginners**
+Titus (Tyndale New Testament Commentaries) by Donald Guthrie - Clear, accessible guide to church organization and godly living shaped by grace.
+
+**For In-Depth Study**
+1-2 Timothy and Titus (NIV Application Commentary) by Walter L. Liefeld - Outstanding at applying Paul's pastoral wisdom on doctrine and good works to contemporary church life.
+
+**Technical/Academic**
+The Pastoral Epistles (Word Biblical Commentary) by William D. Mounce - Comprehensive scholarly treatment with extensive discussion of church leadership and sound doctrine.

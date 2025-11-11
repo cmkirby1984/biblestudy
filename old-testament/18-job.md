@@ -108,3 +108,19 @@ Job confronts the mystery of innocent suffering, demonstrating that simplistic e
 - Reflect on whether you serve God "for nothing" or mainly for benefits
 - Let Job's experience prepare you for unexplained suffering—it will come
 - Meditate on how Job points to Christ, the truly innocent sufferer who bore our sins
+
+## Recommended Resources
+
+### Commentaries
+
+**Best Overall**
+Job by Christopher Ash (Preaching the Word) - Pastoral, theologically rich exposition that honestly addresses suffering while maintaining gospel hope.
+
+**For Beginners**
+Job by Derek Thomas (Reformed Expository Commentary) - Clear, accessible treatment that draws out practical lessons on faith and suffering.
+
+**For In-Depth Study**
+The Book of Job by John E. Hartley (NICOT) - Thorough exegetical work with excellent analysis of poetry, theology, and ancient Near Eastern background.
+
+**Technical/Academic**
+Job by David J. A. Clines (WBC, 3 volumes) - Monumental scholarly commentary with exhaustive treatment of Hebrew text, literary structure, and interpretive issues.

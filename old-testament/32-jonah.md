@@ -84,3 +84,19 @@ Jonah reveals that God's compassion extends beyond Israel to include even their 
 - Meditate on God's compassion for the lost to develop similar concern rather than self-righteous judgment
 - Recognize that you cannot outrun God's purposes; submission is better than resistance
 - Cultivate genuine repentance like the Ninevites—wholehearted turning from sin rather than superficial religious observance
+
+## Recommended Resources
+
+### Commentaries
+
+**Best Overall**
+Joel, Obadiah, Jonah by Leslie C. Allen (NICOT) - Superb treatment of Jonah balancing literary, theological, and practical dimensions.
+
+**For Beginners**
+Jonah by Rosemary Nixon (BST) - Engaging exposition that draws out the book's challenge to our attitudes toward God's mercy.
+
+**For In-Depth Study**
+Jonah and Nahum by T. Desmond Alexander (Tyndale) - Excellent evangelical commentary with strong theological insight and application.
+
+**Technical/Academic**
+Jonah by James Limburg (Old Testament Library) - Thoughtful scholarly treatment with attention to literary structure and theological themes.

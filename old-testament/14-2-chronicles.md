@@ -97,3 +97,19 @@ Solomon builds the glorious temple, but subsequent kings of Judah experience eit
 - Study the reforming kings to learn patterns of spiritual renewal
 - Ask God to show you areas where you've abandoned seeking Him in favor of self-reliance
 - Let the temple's destruction/restoration remind you that God's presence is conditional on faithfulness
+
+## Recommended Resources
+
+### Commentaries
+
+**Best Overall**
+2 Chronicles by Raymond B. Dillard (WBC) - Outstanding balance of scholarly depth and pastoral insight, showing how Chronicles addresses post-exilic community with hope.
+
+**For Beginners**
+2 Chronicles by August H. Konkel (Cornerstone Biblical Commentary) - Accessible exposition that draws out the spiritual lessons from Judah's kings clearly and practically.
+
+**For In-Depth Study**
+2 Chronicles by Andrew E. Hill (NIVAC) - Excellent work connecting temple worship themes to contemporary church life with solid exegetical foundation.
+
+**Technical/Academic**
+2 Chronicles by Sara Japhet (Old Testament Library) - Comprehensive scholarly treatment with detailed analysis of the Chronicler's theology and historical sources.

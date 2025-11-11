@@ -101,3 +101,19 @@ Paul's final charge from prison: remain faithful to the gospel despite suffering
 - Study Paul's example of finishing well - fight the good fight, finish the race, keep the faith even when facing death
 - Develop the discipline to study Scripture like a workman who correctly handles the word of truth, avoiding shallow or distorted interpretations
 - Guard the gospel message entrusted to you by holding to sound teaching and rejecting innovations that compromise biblical truth
+
+## Recommended Resources
+
+### Commentaries
+
+**Best Overall**
+The Letters to Timothy and Titus (Pillar New Testament Commentary) by Philip H. Towner - Excellent contemporary treatment of Paul's final instructions with theological richness.
+
+**For Beginners**
+2 Timothy (Tyndale New Testament Commentaries) by Donald Guthrie - Clear, accessible guide to Paul's final charge and the sufficiency of Scripture.
+
+**For In-Depth Study**
+1-2 Timothy and Titus (NIV Application Commentary) by Walter L. Liefeld - Outstanding at applying Paul's urgent final instructions to contemporary ministry challenges.
+
+**Technical/Academic**
+The Pastoral Epistles (Word Biblical Commentary) by William D. Mounce - Comprehensive scholarly treatment with extensive discussion of Paul's prison context and final words.

@@ -112,3 +112,19 @@ Song of Solomon celebrates romantic and sexual love within marriage as a beautif
 - Explore the allegorical interpretation: meditate on Christ's passionate love for His Church (you!)
 - Let the Song counter both prudish avoidance of sexuality and culture's degradation of it
 - Recognize that the intensity of marital love is meant to reflect something of God's love for His people
+
+## Recommended Resources
+
+### Commentaries
+
+**Best Overall**
+Song of Songs by Richard S. Hess (Baker Commentary) - Excellent scholarly commentary that takes the literal meaning seriously while acknowledging allegorical readings.
+
+**For Beginners**
+Song of Songs by Iain M. Duguid (Reformed Expository Commentary) - Accessible, Christ-centered exposition that honors both literal and spiritual dimensions of the text.
+
+**For In-Depth Study**
+Song of Songs by Tremper Longman III (NICOT) - Thorough exegetical work with strong literary analysis and balanced approach to interpretation.
+
+**Technical/Academic**
+The Song of Songs by Marvin H. Pope (Anchor Bible) - Comprehensive scholarly treatment with extensive comparative ancient Near Eastern love poetry and detailed philological analysis.

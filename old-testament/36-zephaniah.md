@@ -85,3 +85,19 @@ Zephaniah announces the terrifying Day of the LORD as comprehensive judgment on 
 - Study the Day of the LORD to understand both its terror for the unrepentant and hope for the faithful
 - Cultivate humility by recognizing your dependence on God's mercy rather than your own merit
 - Find joy in God's promise to "rejoice over you with singing" (Zephaniah 3:17), letting His delight motivate your devotion
+
+## Recommended Resources
+
+### Commentaries
+
+**Best Overall**
+Nahum, Habakkuk, Zephaniah by O. Palmer Robertson (NICOT) - Masterful evangelical commentary with excellent treatment of the Day of the LORD theme.
+
+**For Beginners**
+Zephaniah by J. Alec Motyer (Christian Focus) - Brief but powerful exposition making this prophetic message clear and urgent.
+
+**For In-Depth Study**
+Zephaniah, Haggai, Zechariah, Malachi by Pierson Parker (Mastering the Old Testament) - Solid work connecting these prophets with strong application.
+
+**Technical/Academic**
+Zephaniah by Adele Berlin (Anchor Bible) - Comprehensive scholarly treatment with detailed analysis of Hebrew poetry and prophetic themes.

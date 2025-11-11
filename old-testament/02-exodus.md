@@ -83,3 +83,19 @@ Exodus reveals God as the covenant-keeping Redeemer who delivers His people from
 - Meditate on God's names revealed in Exodus (I AM, Provider, Healer) to deepen your understanding of His character
 - Use the Ten Commandments as a diagnostic tool for examining areas where you need growth
 - Study how the tabernacle and sacrifices point to Christ, enriching your appreciation for His work
+
+## Recommended Resources
+
+### Commentaries
+
+**Best Overall**
+Exodus by Douglas K. Stuart (NAC) - Masterfully balances historical detail, theological insight, and practical application throughout Israel's deliverance story.
+
+**For Beginners**
+The Message of Exodus by Alec Motyer (BST) - Warmly devotional yet theologically rich, making the book's redemption themes accessible and applicable to modern readers.
+
+**For In-Depth Study**
+Exodus by John I. Durham (WBC) - Comprehensive analysis of the Hebrew text with excellent treatment of covenant theology and tabernacle symbolism.
+
+**Technical/Academic**
+Exodus by William H. C. Propp (Anchor Bible) - Exhaustive philological and historical study with extensive notes on ancient Near Eastern context and textual criticism.

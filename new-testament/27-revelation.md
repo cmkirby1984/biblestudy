@@ -129,3 +129,19 @@ Revelation unveils God's sovereign plan for history's culmination, encouraging p
 - Find hope in suffering by remembering God's sovereignty - He sits on the throne and controls history's direction (Revelation 4:2)
 - Let the promise of new creation motivate present holiness - you're destined for a world where righteousness dwells (Revelation 21:1-5)
 - Develop your understanding of spiritual warfare - recognize you're in a real battle between God's kingdom and Satan's rebellion (Revelation 12:7-12)
+
+## Recommended Resources
+
+### Commentaries
+
+**Best Overall**
+The Book of Revelation (NICNT) by Gregory K. Beale - Widely regarded as the finest evangelical commentary on Revelation with extensive Old Testament connections.
+
+**For Beginners**
+Revelation (Tyndale New Testament Commentaries) by Ian Paul - Clear, accessible guide to Revelation's symbolism and message of hope.
+
+**For In-Depth Study**
+Revelation (NIV Application Commentary) by Craig S. Keener - Outstanding at connecting Revelation's vision to practical Christian living and perseverance.
+
+**Technical/Academic**
+Revelation (Baker Exegetical Commentary) by Grant R. Osborne - Comprehensive scholarly treatment with careful attention to symbolism, structure, and interpretive approaches.

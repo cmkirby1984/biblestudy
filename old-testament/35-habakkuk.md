@@ -85,3 +85,19 @@ Habakkuk wrestles honestly with why God allows evil and uses wicked nations to j
 - Memorize Habakkuk 2:4 ("the righteous will live by his faith") as a foundational principle for your spiritual life
 - Study how Habakkuk moves from questioning to worship, learning to process doubt toward deeper trust
 - Cultivate joy that's rooted in God's character rather than circumstances, preparing for times of hardship
+
+## Recommended Resources
+
+### Commentaries
+
+**Best Overall**
+Nahum, Habakkuk, Zephaniah by O. Palmer Robertson (NICOT) - Outstanding evangelical work with excellent treatment of faith themes and theodicy.
+
+**For Beginners**
+The Message of Habakkuk by David Prior (BST) - Accessible, devotionally rich exposition that addresses wrestling with God and living by faith.
+
+**For In-Depth Study**
+Habakkuk by David W. Baker (Tyndale) - Solid evangelical commentary with strong theological integration and practical application.
+
+**Technical/Academic**
+Habakkuk by Francis I. Andersen (Anchor Bible) - Comprehensive scholarly treatment with detailed philological analysis and attention to literary structure.

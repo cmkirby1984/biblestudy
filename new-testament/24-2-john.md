@@ -96,3 +96,19 @@ Walk in truth and love while refusing hospitality to false teachers who deny Jes
 - Learn to set appropriate boundaries that protect truth while still demonstrating Christ-like love
 - Study core Christian doctrines so you can recognize when teaching deviates from apostolic truth
 - Practice vigilance in protecting what you've gained spiritually - don't lose what you've worked for through carelessness (2 John 1:8)
+
+## Recommended Resources
+
+### Commentaries
+
+**Best Overall**
+The Letters of John (Pillar New Testament Commentary) by Colin G. Kruse - Excellent treatment of balancing truth and love in protecting the church.
+
+**For Beginners**
+The Epistles of John (Tyndale New Testament Commentaries) by John Stott - Clear, accessible guide to walking in truth and love together.
+
+**For In-Depth Study**
+1, 2, and 3 John (NIV Application Commentary) by Gary M. Burge - Outstanding at applying John's warning about false teachers to contemporary church challenges.
+
+**Technical/Academic**
+The Epistles of John (NIGTC) by I. Howard Marshall - Comprehensive scholarly analysis with extensive discussion of early church heresies.

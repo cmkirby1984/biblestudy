@@ -95,3 +95,19 @@ Isaiah proclaims the holy God's judgment on sin while promising ultimate salvati
 - Practice waiting on the Lord in prayer and silence, finding strength in His presence rather than constant activity (40:31)
 - Study how Isaiah balances God's justice and mercy to develop a fuller, more biblical understanding of God's character
 - Reflect on God's sovereignty over nations and history to build confidence that He remains in control despite world events
+
+## Recommended Resources
+
+### Commentaries
+
+**Best Overall**
+Isaiah by John N. Oswalt (NICOT, 2 volumes) - Masterful evangelical commentary combining Hebrew scholarship, theological depth, and Christological focus.
+
+**For Beginners**
+The Message of Isaiah by Barry Webb (BST) - Accessible, well-organized exposition that connects Isaiah's themes to contemporary Christian life.
+
+**For In-Depth Study**
+Isaiah by J. Alec Motyer (Tyndale) - Superb work emphasizing the book's literary unity and rich messianic theology with pastoral warmth.
+
+**Technical/Academic**
+Isaiah by John D. W. Watts (WBC, 2 volumes) - Comprehensive scholarly treatment with detailed philological analysis and extensive historical background.

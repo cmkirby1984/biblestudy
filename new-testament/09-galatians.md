@@ -102,3 +102,19 @@ Galatians passionately defends the gospel of grace against legalistic teaching t
 - Identify areas where you've slipped into performance-based Christianity, trying to earn God's favor rather than resting in grace
 - Practice living in the Spirit's power by consciously yielding to His leading rather than depending on your own discipline and willpower
 - Celebrate your identity in Christ that transcends all social, ethnic, and economic distinctions - you are a child of God and an heir of His promises
+
+## Recommended Resources
+
+### Commentaries
+
+**Best Overall**
+Galatians (Baker Exegetical Commentary) by Thomas R. Schreiner - Outstanding contemporary treatment of Paul's passionate defense of the gospel of grace.
+
+**For Beginners**
+Galatians (Tyndale New Testament Commentaries) by John Stott - Classic, clear exposition from one of evangelicalism's finest teachers on justification by faith.
+
+**For In-Depth Study**
+Galatians (NIV Application Commentary) by Scot McKnight - Excellent at connecting Paul's argument against legalism to contemporary Christian experience.
+
+**Technical/Academic**
+The Epistle to the Galatians (NIGTC) by Richard N. Longenecker - Comprehensive scholarly commentary with extensive treatment of Paul's argument and background.

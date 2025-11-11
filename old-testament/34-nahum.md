@@ -85,3 +85,19 @@ Nahum announces certain judgment on cruel Assyria (Nineveh), demonstrating that 
 - Develop patience by trusting God's timing for justice rather than demanding immediate resolution
 - Study how God's justice operates on a national and systemic level, not just individually
 - Find comfort in knowing that no human power, however formidable, can ultimately prevail against God's purposes
+
+## Recommended Resources
+
+### Commentaries
+
+**Best Overall**
+Jonah and Nahum by T. Desmond Alexander (Tyndale) - Excellent evangelical treatment showing the connection between God's mercy (Jonah) and justice (Nahum).
+
+**For Beginners**
+Nahum, Habakkuk, Zephaniah by O. Palmer Robertson (NICOT) - Clear, accessible exposition connecting these prophets to God's character and purposes.
+
+**For In-Depth Study**
+Nahum by Duane Garrett (NAC) - Solid evangelical commentary with strong theological grounding and historical background.
+
+**Technical/Academic**
+Nahum by Michael H. Floyd (Eerdmans) - Comprehensive scholarly work with detailed philological analysis and literary structure.

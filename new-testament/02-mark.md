@@ -102,3 +102,19 @@ Mark presents Jesus as the powerful Son of God who performs mighty works yet suf
 - Study the contrast between worldly greatness and kingdom servanthood to realign your ambitions with Christ's values
 - Reflect on the centurion's confession at the cross: "Surely this man was the Son of God"—let the cross be where you most clearly see Jesus' identity
 - Examine the disciples' misunderstandings to identify where you might be missing what Jesus is teaching you
+
+## Recommended Resources
+
+### Commentaries
+
+**Best Overall**
+The Gospel According to Mark (NIGTC) by R.T. France - Masterful blend of scholarly rigor and pastoral warmth, excellent on Mark's unique emphases.
+
+**For Beginners**
+Mark (ESV Expository Commentary) by Rikk Watts - Clear, gospel-centered exposition that helps readers understand and apply Mark's fast-paced narrative.
+
+**For In-Depth Study**
+Mark (NIV Application Commentary) by David E. Garland - Thorough treatment of the text with strong focus on practical application for contemporary readers.
+
+**Technical/Academic**
+Mark (Word Biblical Commentary) by Robert A. Guelich and Craig A. Evans - Comprehensive scholarly analysis with detailed treatment of Greek text and background issues.

@@ -96,3 +96,19 @@ Esther reveals God's hidden yet powerful providence in protecting His people fro
 - Practice fasting and prayer when facing major decisions, as Esther did before approaching the king
 - Learn from Mordecai: conviction without compromise, boldness without boasting
 - Reflect on how God reverses evil plots—trust that those who oppose His people will ultimately fail
+
+## Recommended Resources
+
+### Commentaries
+
+**Best Overall**
+Esther by Karen H. Jobes (NIVAC) - Exceptional work balancing literary analysis, theological depth, and practical application of providence themes.
+
+**For Beginners**
+Esther by Iain M. Duguid (Reformed Expository Commentary) - Accessible, Christ-centered exposition showing God's hidden work and calling believers to courageous faith.
+
+**For In-Depth Study**
+Esther by Joyce G. Baldwin (Tyndale) - Solid evangelical commentary with helpful insights into Persian culture and the book's literary artistry.
+
+**Technical/Academic**
+Esther by Frederic Bush (WBC) - Thorough scholarly treatment with detailed analysis of the Hebrew text and extensive discussion of historical issues.

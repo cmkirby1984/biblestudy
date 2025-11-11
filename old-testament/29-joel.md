@@ -88,3 +88,19 @@ Joel uses a devastating locust plague as both judgment and warning of the greate
 - Reflect on God's gracious character (compassionate, slow to anger, abounding in love) to fuel both reverence and confidence
 - Recognize the Holy Spirit's empowering presence in your life as fulfillment of Joel's prophecy (Acts 2:16-21)
 - Prepare your heart for Christ's return by living with awareness that the Day of the LORD is coming
+
+## Recommended Resources
+
+### Commentaries
+
+**Best Overall**
+Joel, Obadiah, Jonah by Leslie C. Allen (NICOT) - Excellent evangelical commentary with strong exegetical foundation and theological insight.
+
+**For Beginners**
+The Minor Prophets by James Boice (2 volumes) - Clear, expository preaching that makes Joel's message accessible and relevant.
+
+**For In-Depth Study**
+Joel and Amos by David Prior (BST) - Thoughtful exposition connecting the prophets' message to contemporary life and faith.
+
+**Technical/Academic**
+Joel by Marvin A. Sweeney (Hermeneia) - Comprehensive scholarly treatment with detailed analysis of Hebrew text and historical background.

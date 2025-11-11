@@ -97,3 +97,19 @@ Nehemiah demonstrates that godly leadership, persistent prayer, and courageous a
 - Study Nehemiah's leadership: vision, organization, courage, and integrity
 - Learn from the pattern: external restoration requires internal renewal—fix your "walls" while renewing your heart
 - Let Nehemiah 8 (Scripture reading and response) model how to engage with God's Word in community
+
+## Recommended Resources
+
+### Commentaries
+
+**Best Overall**
+Ezra-Nehemiah by Derek Kidner (Tyndale) - Concise yet profound exposition that draws out timeless leadership principles and spiritual lessons from the rebuilding narratives.
+
+**For Beginners**
+Nehemiah by Raymond Brown (BST) - Engaging, devotional approach that applies Nehemiah's leadership and faith practically to contemporary life.
+
+**For In-Depth Study**
+Ezra and Nehemiah by Mark J. Boda (NIVAC) - Excellent treatment showing how Nehemiah's physical and spiritual restoration speaks to church renewal today.
+
+**Technical/Academic**
+Ezra and Nehemiah by H. G. M. Williamson (WBC) - Detailed scholarly analysis with extensive treatment of Persian period history and textual issues.

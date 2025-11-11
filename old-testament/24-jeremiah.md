@@ -101,3 +101,19 @@ Jeremiah announces unavoidable judgment on Judah through Babylonian exile due to
 - Study the New Covenant promises to understand how Christ fulfills them and what it means to have God's law written on your heart
 - Examine areas where you've been religiously active but spiritually distant, inviting God's transforming work
 - Reflect on how God's faithfulness persists even through seasons of discipline and hardship
+
+## Recommended Resources
+
+### Commentaries
+
+**Best Overall**
+Jeremiah by J. A. Thompson (NICOT) - Solid evangelical commentary with excellent balance of historical background, theology, and practical application.
+
+**For Beginners**
+The Message of Jeremiah by Christopher J. H. Wright (BST) - Clear, devotionally rich exposition connecting Jeremiah's message to contemporary faith and life.
+
+**For In-Depth Study**
+Jeremiah by F. B. Huey (NAC) - Thorough evangelical work with strong treatment of the New Covenant and Jeremiah's biographical sections.
+
+**Technical/Academic**
+Jeremiah by William L. Holladay (Hermeneia, 2 volumes) - Comprehensive scholarly commentary with detailed philological analysis and extensive historical research.

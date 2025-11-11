@@ -107,3 +107,19 @@ Matthew presents Jesus as the long-awaited Messiah-King who fulfills Old Testame
 - Study how Jesus fulfills Old Testament prophecy to deepen your confidence in God's faithfulness and the unity of Scripture
 - Embrace Jesus' authority as King over every area of your life—relationships, finances, career, time, and priorities
 - Participate actively in the Great Commission by sharing your faith and discipling others in your sphere of influence
+
+## Recommended Resources
+
+### Commentaries
+
+**Best Overall**
+The Gospel According to Matthew (NICNT) by R.T. France - Combines scholarly depth with pastoral insight, excellent on Jesus' fulfillment of Old Testament prophecy.
+
+**For Beginners**
+Matthew (Tyndale New Testament Commentaries) by R.T. France - Clear, concise, and accessible introduction to Matthew's Gospel with practical applications.
+
+**For In-Depth Study**
+Matthew (NIV Application Commentary) by Michael J. Wilkins - Bridges the gap between biblical text and contemporary life with rich exegesis and practical application.
+
+**Technical/Academic**
+The Gospel According to Matthew (NIGTC) by D.A. Carson - Comprehensive scholarly treatment with extensive discussion of Greek text and interpretive issues.

@@ -84,3 +84,19 @@ Leviticus teaches that the holy God requires holiness from His people in every a
 - Study the sacrificial system to better appreciate Christ's perfect sacrifice (see Hebrews)
 - Reflect on how Christ fulfills the role of High Priest, making continual access to God possible
 - Let the call to holiness drive you toward deeper dependence on God's transforming power
+
+## Recommended Resources
+
+### Commentaries
+
+**Best Overall**
+Leviticus by Mark F. Rooker (NAC) - Excellent balance of scholarly rigor and practical relevance, showing how holiness principles apply today.
+
+**For Beginners**
+Leviticus by Gordon J. Wenham (NICOT) - Remarkably accessible despite its scholarship, making this challenging book understandable and spiritually enriching.
+
+**For In-Depth Study**
+The Book of Leviticus by John E. Hartley (NICOT) - Comprehensive treatment of ritual law with helpful connections to New Testament fulfillment in Christ.
+
+**Technical/Academic**
+Leviticus by Jacob Milgrom (Anchor Bible) - Monumental three-volume work offering unparalleled analysis of ritual, purity laws, and ancient sacrificial systems.

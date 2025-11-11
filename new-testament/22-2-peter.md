@@ -97,3 +97,19 @@ Grow in godly character while guarding against false teachers, living expectantl
 - Grow in grace and knowledge of Jesus Christ - make continuous spiritual growth your lifelong goal (2 Peter 3:18)
 - Pursue holiness motivated by the certainty of new heavens and new earth where righteousness dwells (2 Peter 3:13-14)
 - Guard against complacency by remembering that spiritual maturity requires intentional effort - these qualities keep you from being ineffective (2 Peter 1:8)
+
+## Recommended Resources
+
+### Commentaries
+
+**Best Overall**
+2 Peter and Jude (Baker Exegetical Commentary) by Gene L. Green - Excellent treatment of false teaching and Christ's return with theological depth.
+
+**For Beginners**
+2 Peter and Jude (Tyndale New Testament Commentaries) by Michael Green - Clear, accessible guide to spiritual growth and guarding against error.
+
+**For In-Depth Study**
+2 Peter and Jude (NIV Application Commentary) by Douglas J. Moo - Outstanding at applying Peter's warnings about false teachers to contemporary church challenges.
+
+**Technical/Academic**
+2 Peter and Jude (Word Biblical Commentary) by Richard Bauckham - Comprehensive scholarly treatment with extensive discussion of background and literary relationships.

@@ -102,3 +102,19 @@ Paul defends his apostolic ministry by revealing how God's power is perfected th
 - Study how Paul defended truth with both boldness and gentleness - learn to contend for the faith without becoming contentious
 - Meditate on the "treasure in jars of clay" principle - how your limitations showcase God's power more effectively than self-sufficiency would
 - Practice sowing generously in all areas (time, money, encouragement), trusting God's promise that generous sowers will reap bountifully
+
+## Recommended Resources
+
+### Commentaries
+
+**Best Overall**
+The Second Epistle to the Corinthians (NICNT) by Murray J. Harris - Exceptional balance of scholarship and pastoral sensitivity to Paul's vulnerable letter.
+
+**For Beginners**
+2 Corinthians (Tyndale New Testament Commentaries) by Colin Kruse - Accessible and clear exposition of Paul's most personal letter with practical insights.
+
+**For In-Depth Study**
+2 Corinthians (NIV Application Commentary) by Scott J. Hafemann - Excellent at applying Paul's theology of ministry and suffering to contemporary Christian life.
+
+**Technical/Academic**
+The Second Epistle to the Corinthians (NIGTC) by Murray J. Harris - Comprehensive scholarly analysis with detailed treatment of Greek text and interpretive debates.

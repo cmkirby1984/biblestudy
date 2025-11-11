@@ -99,3 +99,19 @@ Paul addresses divisions, immorality, and disorder in Corinth by calling believe
 - Practice using your spiritual gifts specifically to build up others in the body, not to gain recognition for yourself
 - Study the resurrection chapter (15) to strengthen your confidence in Christ's victory over death and your future transformation
 - Examine areas where cultural wisdom has infiltrated your thinking, replacing it with the "foolishness" of the cross
+
+## Recommended Resources
+
+### Commentaries
+
+**Best Overall**
+The First Epistle to the Corinthians (NICNT) by Gordon D. Fee - Widely regarded as the definitive modern commentary, combining scholarly excellence with pastoral wisdom.
+
+**For Beginners**
+1 Corinthians (Tyndale New Testament Commentaries) by Leon Morris - Clear, accessible, and practical guidance through Paul's letter to a troubled church.
+
+**For In-Depth Study**
+1 Corinthians (NIV Application Commentary) by Craig Blomberg - Outstanding at connecting Paul's teaching to contemporary issues with thoughtful application.
+
+**Technical/Academic**
+1 Corinthians (Baker Exegetical Commentary) by David E. Garland - Thorough scholarly treatment with careful attention to Greek text and cultural background.

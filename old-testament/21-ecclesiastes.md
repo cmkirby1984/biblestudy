@@ -104,3 +104,19 @@ Ecclesiastes reveals the futility and meaninglessness of life when viewed from a
 - Meditate on Ecclesiastes 3:11—God has set eternity in your heart; earthly things will never fully satisfy
 - Study how Ecclesiastes drives you to Christ, who gives eternal life and transforms "vanity" into purpose
 - Balance Ecclesiastes' somber realism with Proverbs' practical wisdom and Psalms' joyful worship
+
+## Recommended Resources
+
+### Commentaries
+
+**Best Overall**
+Ecclesiastes by Craig G. Bartholomew (Baker Commentary) - Outstanding work that navigates interpretive challenges while showing how the book drives us to find meaning in God.
+
+**For Beginners**
+The Message of Ecclesiastes by Derek Kidner (BST) - Brief but profound exposition that makes this difficult book accessible and spiritually enriching.
+
+**For In-Depth Study**
+Ecclesiastes by Tremper Longman III (NICOT) - Excellent evangelical commentary with strong literary analysis and theological integration.
+
+**Technical/Academic**
+Ecclesiastes by C. L. Seow (Anchor Bible) - Comprehensive scholarly treatment with detailed philological analysis and extensive interaction with ancient Near Eastern wisdom literature.

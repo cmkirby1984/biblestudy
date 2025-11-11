@@ -98,3 +98,19 @@ Ezekiel emphasizes God's holiness, which demands judgment on persistent sin, whi
 - Pray for a fresh experience of God's glory and presence—don't settle for spiritual dryness or mere knowledge about God
 - Study the vision of dry bones (chapter 37) as encouragement that God can revive what seems spiritually dead in your life or church
 - Reflect on how the Spirit's work brings new life, allowing this to shape your dependence on God rather than self-effort
+
+## Recommended Resources
+
+### Commentaries
+
+**Best Overall**
+Ezekiel by Daniel I. Block (NICOT, 2 volumes) - Monumental evangelical commentary combining exegetical excellence, theological depth, and pastoral insight.
+
+**For Beginners**
+The Message of Ezekiel by Christopher J. H. Wright (BST) - Clear, accessible exposition that makes Ezekiel's visions and messages understandable and relevant.
+
+**For In-Depth Study**
+Ezekiel by Iain M. Duguid (NIVAC) - Excellent work connecting Ezekiel's ancient context to contemporary Christian life with strong application.
+
+**Technical/Academic**
+Ezekiel by Moshe Greenberg (Anchor Bible, 2 volumes) - Comprehensive scholarly treatment with detailed philological analysis and extensive historical background.

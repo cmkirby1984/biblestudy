@@ -85,3 +85,19 @@ Numbers reveals the tragic consequences of unbelief and rebellion against God, w
 - When facing your own "wilderness wandering," ask what God is teaching you through the trial
 - Examine whether unbelief is keeping you from experiencing God's best for your life
 - Study the bronze serpent (Numbers 21) as a picture of looking to Christ for healing and salvation
+
+## Recommended Resources
+
+### Commentaries
+
+**Best Overall**
+Numbers by Timothy R. Ashley (NICOT) - Thorough exposition that skillfully connects Israel's wilderness journey to Christian spiritual formation and faith.
+
+**For Beginners**
+The Message of Numbers by Raymond Brown (BST) - Engaging, devotional approach that draws out practical lessons from Israel's wanderings for contemporary believers.
+
+**For In-Depth Study**
+Numbers by R. Dennis Cole (NAC) - Well-researched commentary balancing historical background with theological themes and pastoral application.
+
+**Technical/Academic**
+Numbers by Jacob Milgrom (JPS Torah Commentary) - Detailed philological and historical analysis with extensive treatment of priestly traditions and ancient ritual.

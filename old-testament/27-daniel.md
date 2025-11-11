@@ -92,3 +92,19 @@ Daniel demonstrates that God remains sovereign over all earthly empires and fait
 - Study God's sovereignty over history and nations to build confidence in His control, especially when world events seem chaotic
 - Live with eternal perspective, remembering that earthly kingdoms are temporary but God's kingdom is everlasting
 - Cultivate the courage to stand alone when necessary, trusting God's vindication rather than seeking human approval
+
+## Recommended Resources
+
+### Commentaries
+
+**Best Overall**
+Daniel by Ernest C. Lucas (Apollos) - Excellent balance of scholarly rigor and pastoral warmth, carefully navigating interpretive challenges.
+
+**For Beginners**
+Daniel by Dale Ralph Davis (Reformed Expository Commentary) - Engaging, devotional exposition with memorable insights and practical applications for faithful living.
+
+**For In-Depth Study**
+Daniel by Tremper Longman III (NIVAC) - Thorough evangelical commentary connecting ancient apocalyptic to contemporary Christian faithfulness.
+
+**Technical/Academic**
+Daniel by John E. Goldingay (WBC) - Comprehensive scholarly treatment with detailed analysis of Hebrew and Aramaic text and extensive historical background.

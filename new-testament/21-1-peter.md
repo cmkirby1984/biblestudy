@@ -98,3 +98,19 @@ Suffering believers are exiles on earth with a living hope in heaven, called to 
 - Study Christ's example of suffering to develop the same attitude - view hardship as participation in His sufferings (1 Peter 4:12-13)
 - Cultivate humility by clothing yourself with it - God gives grace to the humble but opposes the proud (1 Peter 5:5-6)
 - Cast all your anxieties on God, knowing He genuinely cares for you - resist anxiety through prayer and trust (1 Peter 5:7)
+
+## Recommended Resources
+
+### Commentaries
+
+**Best Overall**
+The First Epistle of Peter (NICNT) by Peter H. Davids - Excellent treatment of suffering and hope with strong attention to context.
+
+**For Beginners**
+1 Peter (Tyndale New Testament Commentaries) by Wayne Grudem - Clear, accessible guide to living as exiles with hope.
+
+**For In-Depth Study**
+1 Peter (NIV Application Commentary) by Scot McKnight - Outstanding at connecting Peter's teaching on suffering to contemporary Christian experience.
+
+**Technical/Academic**
+1 Peter (Baker Exegetical Commentary) by Karen H. Jobes - Comprehensive scholarly treatment with careful attention to Greek text and Old Testament background.

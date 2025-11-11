@@ -100,3 +100,19 @@ Practice Christian hospitality and support gospel workers, imitating good not ev
 - Find joy in other believers walking in truth, making their spiritual growth a source of personal delight (3 John 1:4)
 - Develop generosity toward gospel work, recognizing that supporting ministry is partnership in spreading truth
 - Choose your role models carefully - imitate those who demonstrate genuine faith through good deeds, not those who seek power (3 John 1:11)
+
+## Recommended Resources
+
+### Commentaries
+
+**Best Overall**
+The Letters of John (Pillar New Testament Commentary) by Colin G. Kruse - Excellent treatment of hospitality and contrasting examples of Christian character.
+
+**For Beginners**
+The Epistles of John (Tyndale New Testament Commentaries) by John Stott - Clear, accessible guide to practicing hospitality and imitating what is good.
+
+**For In-Depth Study**
+1, 2, and 3 John (NIV Application Commentary) by Gary M. Burge - Outstanding at applying John's teaching on hospitality and church leadership to contemporary situations.
+
+**Technical/Academic**
+The Epistles of John (NIGTC) by I. Howard Marshall - Comprehensive scholarly treatment with careful attention to early church structure and conflicts.

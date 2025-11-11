@@ -92,3 +92,19 @@ Ezra demonstrates God's faithfulness in restoring His people from exile and rebu
 - Identify compromises with culture that threaten your spiritual integrity
 - Study how prophetic encouragement (Haggai, Zechariah) revived the work—surround yourself with encouraging truth
 - Let Ezra's grief over sin cultivate appropriate sorrow for your own sin rather than casual indifference
+
+## Recommended Resources
+
+### Commentaries
+
+**Best Overall**
+Ezra-Nehemiah by Derek Kidner (Tyndale) - Brief but excellent exposition combining solid scholarship with pastoral warmth and practical insight.
+
+**For Beginners**
+Ezra and Nehemiah by Mark Boda (Cornerstone Biblical Commentary) - Clear, readable treatment that makes the post-exilic restoration relevant for contemporary believers.
+
+**For In-Depth Study**
+Ezra and Nehemiah by Mark J. Boda (NIVAC) - Thorough work connecting restoration themes to Christian life and church renewal with strong application.
+
+**Technical/Academic**
+Ezra and Nehemiah by H. G. M. Williamson (WBC) - Comprehensive scholarly commentary with detailed textual analysis and extensive historical background on Persian period.

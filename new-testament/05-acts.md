@@ -101,3 +101,19 @@ Acts chronicles the explosive growth of the early church from a small Jewish sec
 - Reflect on key transitions (Pentecost, Cornelius, Paul's conversion) to understand how God breaks through barriers and transforms lives
 - Examine the early church's devotion to prayer, Scripture, fellowship, and generosity as a model for spiritual vitality
 - Trust that the risen Jesus is still actively working through His church today, just as He did in Acts—you're part of the ongoing story
+
+## Recommended Resources
+
+### Commentaries
+
+**Best Overall**
+The Book of Acts (NICNT) by F.F. Bruce - Classic, balanced commentary combining historical insight with theological depth on Luke's narrative.
+
+**For Beginners**
+Acts (Tyndale New Testament Commentaries) by I. Howard Marshall - Clear, accessible introduction to Acts with solid exposition and practical insights.
+
+**For In-Depth Study**
+Acts (NIV Application Commentary) by Ajith Fernando - Excels at bridging ancient text and contemporary application with pastoral warmth and missional focus.
+
+**Technical/Academic**
+The Acts of the Apostles (Pillar New Testament Commentary) by David G. Peterson - Thorough scholarly treatment with strong emphasis on Luke's theology and narrative structure.

@@ -85,3 +85,19 @@ Obadiah announces God's judgment on Edom for prideful betrayal of brother nation
 - Develop confidence in God's ultimate victory and kingdom establishment, even when circumstances seem to favor the wicked
 - Practice humility by acknowledging your dependence on God rather than your own strength, wisdom, or resources
 - Cultivate loyalty and compassion toward spiritual family, especially during their times of suffering or persecution
+
+## Recommended Resources
+
+### Commentaries
+
+**Best Overall**
+Joel, Obadiah, Jonah by Leslie C. Allen (NICOT) - Excellent treatment of Obadiah's brief but powerful message about pride and divine justice.
+
+**For Beginners**
+Obadiah and Jonah by John Mackay (Mentor) - Brief, accessible exposition that draws out practical lessons from these short prophetic books.
+
+**For In-Depth Study**
+Obadiah, Jonah, Micah by Billy K. Smith and Frank S. Page (NAC) - Solid evangelical commentary with good historical background and theological insight.
+
+**Technical/Academic**
+Obadiah by Paul R. Raabe (Anchor Bible) - Detailed scholarly analysis with extensive treatment of Edom-Israel relationships and ancient Near Eastern context.

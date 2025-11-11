@@ -104,3 +104,19 @@ Guard sound doctrine against false teaching, appoint qualified leaders based on 
 - Recognize that false teaching often begins subtly - develop discernment to identify teaching that strays from sound doctrine
 - Practice contentment daily by thanking God for what you have rather than constantly desiring more
 - If in leadership, ensure your character matches or exceeds your competence - who you are matters more than what you can do
+
+## Recommended Resources
+
+### Commentaries
+
+**Best Overall**
+The Letters to Timothy and Titus (Pillar New Testament Commentary) by Philip H. Towner - Excellent contemporary treatment of Paul's pastoral instructions with theological depth.
+
+**For Beginners**
+1 Timothy (Tyndale New Testament Commentaries) by Donald Guthrie - Clear, accessible guide to church leadership and sound doctrine.
+
+**For In-Depth Study**
+1-2 Timothy and Titus (NIV Application Commentary) by Walter L. Liefeld - Outstanding at applying Paul's pastoral wisdom to contemporary church ministry and leadership.
+
+**Technical/Academic**
+The Pastoral Epistles (Word Biblical Commentary) by William D. Mounce - Comprehensive scholarly treatment with extensive discussion of Greek text and church order.

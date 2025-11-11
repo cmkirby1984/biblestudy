@@ -97,3 +97,19 @@ Despite Elisha's miracles and brief reforms under Hezekiah and Josiah, both Isra
 - Study how God's patience eventually gives way to just judgment—don't presume on His mercy
 - Reflect on Elisha's ministry: God continues to care for individuals even as nations decline
 - Let Israel's exile warn you that persistent sin has real consequences
+
+## Recommended Resources
+
+### Commentaries
+
+**Best Overall**
+2 Kings by Paul R. House (NAC) - Theologically robust commentary that explains the exile while highlighting God's faithfulness through judgment.
+
+**For Beginners**
+2 Kings by Peter J. Leithart (Brazos Theological Commentary) - Thoughtful, Christ-centered reading that connects the narrative to broader biblical themes and Christian theology.
+
+**For In-Depth Study**
+2 Kings by Dale Ralph Davis (The Power and the Fury) - Winsome exposition with memorable insights, combining scholarly rigor with pastoral sensitivity.
+
+**Technical/Academic**
+2 Kings by Mordechai Cogan and Hayim Tadmor (Anchor Bible) - Exhaustive historical and philological analysis with detailed treatment of Assyrian and Babylonian sources.

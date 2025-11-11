@@ -88,3 +88,19 @@ Hosea uses the prophet's painful marriage to unfaithful Gomer to illustrate God'
 - Practice authentic repentance that goes beyond words to genuine heart change and life transformation
 - Study how idolatry appears in modern forms (success, comfort, approval) and cultivate exclusive devotion to God
 - Develop perseverance in relationships by reflecting God's hesed (steadfast love) toward others who disappoint you
+
+## Recommended Resources
+
+### Commentaries
+
+**Best Overall**
+Hosea by Douglas Stuart (WBC) - Masterful scholarly commentary with excellent treatment of marriage metaphor and covenant themes.
+
+**For Beginners**
+The Message of Hosea by Derek Kidner (BST) - Brief but profound exposition making Hosea's message accessible and applicable.
+
+**For In-Depth Study**
+Hosea by Duane A. Garrett (NAC) - Solid evangelical work with strong theological grounding and practical insights.
+
+**Technical/Academic**
+Hosea-Jonah by James L. Mays (Old Testament Library) - Comprehensive scholarly treatment with detailed philological analysis and theological depth.

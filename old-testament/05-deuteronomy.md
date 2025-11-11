@@ -88,3 +88,19 @@ Deuteronomy calls God's people to love Him completely, remember His faithfulness
 - Regularly review God's past faithfulness in your life as fuel for present trust
 - Study how Jesus quoted Deuteronomy when tempted (Matthew 4), using it as your weapon against temptation
 - Let the blessing/curse principle motivate obedience while resting in Christ who bore the curse for us
+
+## Recommended Resources
+
+### Commentaries
+
+**Best Overall**
+Deuteronomy by Daniel I. Block (NIVAC) - Masterful work connecting ancient covenant theology to contemporary Christian living with pastoral sensitivity.
+
+**For Beginners**
+The Message of Deuteronomy by Raymond Brown (BST) - Warm, accessible exposition emphasizing wholehearted devotion to God with practical life applications.
+
+**For In-Depth Study**
+Deuteronomy by Eugene H. Merrill (NAC) - Solid evangelical scholarship with excellent treatment of covenant structure and theological themes.
+
+**Technical/Academic**
+Deuteronomy by Jeffrey H. Tigay (JPS Torah Commentary) - Rigorous analysis of the Hebrew text with extensive notes on ancient Near Eastern treaty forms and legal traditions.

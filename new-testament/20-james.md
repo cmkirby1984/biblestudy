@@ -110,6 +110,28 @@ James emphasizes practical, authentic Christianity that demonstrates faith throu
 - **Turn Faith into Action**: When you see a need, don't just pray about it - take concrete steps to meet that need (James 2:15-16)
 
 **For Spiritual Growth:**
+- Examine whether your faith is merely intellectual or producing concrete works of love and justice - dead faith saves no one (James 2:14-26)
+- Ask God for wisdom liberally when facing difficult decisions, trusting He gives generously without finding fault (James 1:5)
+- Study the relationship between trials and spiritual maturity - let testing develop perseverance that leads to completeness (James 1:2-4)
+- Practice keeping tight rein on your tongue, recognizing that controlling speech is key to controlling your whole body (James 3:2-6)
+
+## Recommended Resources
+
+### Commentaries
+
+**Best Overall**
+The Letter of James (Pillar New Testament Commentary) by Douglas J. Moo - Excellent balance of scholarship and practical wisdom on faith and works.
+
+**For Beginners**
+James (Tyndale New Testament Commentaries) by Douglas J. Moo - Clear, accessible guide to practical Christianity and genuine faith.
+
+**For In-Depth Study**
+James (NIV Application Commentary) by David P. Nystrom - Outstanding at applying James' wisdom to contemporary Christian practice.
+
+**Technical/Academic**
+A Critical and Exegetical Commentary on the Epistle of James (ICC) by Luke Timothy Johnson - Comprehensive scholarly treatment with extensive discussion of James' wisdom tradition.
+
+**For Spiritual Growth:**
 - View trials as opportunities for growth - ask God for wisdom to see how He's developing perseverance and maturity in you (James 1:2-4)
 - Examine your life for any inconsistency between what you believe and how you live - genuine faith produces corresponding actions
 - Seek heavenly wisdom characterized by purity, peace, consideration, submission, mercy, and sincerity rather than worldly wisdom driven by selfish ambition (James 3:13-18)

@@ -101,6 +101,16 @@ Each book includes:
 
 ---
 
+## Quick Reference
+
+Need a fast overview? Check out our **[Quick Reference Tables](quick-reference/README.md)**:
+- [Old Testament Overview](quick-reference/old-testament-overview.md) - All 39 books at a glance
+- [New Testament Overview](quick-reference/new-testament-overview.md) - All 27 books at a glance
+
+Perfect for printing, teaching prep, or quick lookup!
+
+---
+
 ## How to Use This Study Guide
 
 1. **Sequential Study**: Read through the books in order to understand the biblical narrative

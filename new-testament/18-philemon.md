@@ -96,3 +96,19 @@ Philemon is a masterpiece of Christian persuasion, showing how the gospel transf
 - Reflect on how the gospel should impact your view of people from different social or economic backgrounds - do you truly see them as equal brothers and sisters?
 - Practice gentle persuasion in your relationships, appealing to others' better nature rather than always asserting your rights or authority
 - Consider areas where you need to extend radical forgiveness rooted in recognizing how much Christ has forgiven you
+
+## Recommended Resources
+
+### Commentaries
+
+**Best Overall**
+The Letters to the Colossians and to Philemon (Pillar New Testament Commentary) by Douglas J. Moo - Excellent treatment of Paul's appeal for Christian reconciliation and brotherhood.
+
+**For Beginners**
+Philemon (Tyndale New Testament Commentaries) by R.R. Martin - Clear, accessible exposition of Paul's masterpiece of Christian persuasion and forgiveness.
+
+**For In-Depth Study**
+Colossians and Philemon (NIV Application Commentary) by David E. Garland - Outstanding at applying Paul's teaching on reconciliation and the gospel's social implications.
+
+**Technical/Academic**
+Colossians and Philemon (Word Biblical Commentary) by Peter T. O'Brien - Thorough scholarly treatment with extensive discussion of slavery, reconciliation, and Paul's rhetoric.

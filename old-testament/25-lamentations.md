@@ -87,3 +87,19 @@ Lamentations gives voice to overwhelming grief over the catastrophic destruction
 - Meditate on God's faithfulness when feelings contradict faith, anchoring your hope in His character rather than your circumstances
 - Learn to hold tension between acknowledging God's justice in consequences while still trusting His compassion
 - Develop resilience by seeing how faith survives the darkest valleys, preparing you for future trials
+
+## Recommended Resources
+
+### Commentaries
+
+**Best Overall**
+Lamentations by Paul R. House (WBC) - Excellent scholarly work that explores the poetry's depth while drawing out theological and pastoral implications.
+
+**For Beginners**
+Lamentations by Christopher J. H. Wright (NIV Application Commentary) - Accessible exposition connecting ancient grief to contemporary suffering with sensitivity.
+
+**For In-Depth Study**
+Lamentations by Heath Thomas (Two Horizons) - Thoughtful theological commentary showing how to read and pray Lamentations in Christian context.
+
+**Technical/Academic**
+Lamentations by F. W. Dobbs-Allsopp (Yale Anchor Bible) - Detailed literary and linguistic analysis with extensive treatment of Hebrew poetry and ancient Near Eastern lament traditions.

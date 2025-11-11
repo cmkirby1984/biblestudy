@@ -100,3 +100,19 @@ Romans presents the most systematic explanation of the gospel in Scripture. All 
 - Meditate on Romans 8 regularly, letting the Spirit's assurance combat doubt and fear in your Christian walk
 - Practice seeing God's sovereignty in difficult circumstances, trusting He works all things for good for those who love Him
 - Examine areas where you're still trusting in your own righteousness rather than Christ's, and consciously surrender them to God
+
+## Recommended Resources
+
+### Commentaries
+
+**Best Overall**
+The Letter to the Romans (Pillar New Testament Commentary) by Douglas J. Moo - Widely regarded as the best contemporary commentary on Romans, clear and theologically rich.
+
+**For Beginners**
+Romans (Tyndale New Testament Commentaries) by John Stott - Accessible, clear, and pastoral exposition from one of evangelicalism's finest Bible teachers.
+
+**For In-Depth Study**
+Romans (NIV Application Commentary) by Douglas J. Moo - Excellent at connecting Paul's theology to contemporary life with robust exegesis and practical application.
+
+**Technical/Academic**
+The Epistle to the Romans (NIGTC) by Douglas J. Moo - Comprehensive scholarly treatment with extensive interaction with Greek text and interpretive debates.

@@ -101,3 +101,19 @@ Colossians exalts Christ's absolute supremacy and sufficiency against false teac
 - Study what it means to be "complete in Christ" - you lack nothing for salvation, righteousness, or spiritual life
 - Practice dwelling richly in God's word through reading, singing, teaching, and admonishing one another with wisdom
 - Examine whether you're pursuing Christian maturity through spiritual disciplines or slipping into rule-based performance
+
+## Recommended Resources
+
+### Commentaries
+
+**Best Overall**
+The Letters to the Colossians and to Philemon (Pillar New Testament Commentary) by Douglas J. Moo - Excellent contemporary treatment of Christ's supremacy and sufficiency.
+
+**For Beginners**
+Colossians (Tyndale New Testament Commentaries) by N.T. Wright - Clear, readable exposition focusing on Christ's lordship over all creation.
+
+**For In-Depth Study**
+Colossians and Philemon (NIV Application Commentary) by David E. Garland - Outstanding at applying Paul's teaching on Christ's supremacy to contemporary issues and false teaching.
+
+**Technical/Academic**
+The Epistle to the Colossians (NIGTC) by James D.G. Dunn - Comprehensive scholarly analysis with extensive treatment of the Colossian heresy and Paul's response.

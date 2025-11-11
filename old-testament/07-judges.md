@@ -87,3 +87,19 @@ Judges reveals the devastating consequences of abandoning God and following cult
 - Ask God to reveal areas where you're doing "what's right in your own eyes" instead of following His Word
 - Study the judges to learn from both their strengths (faith) and weaknesses (moral failures)
 - Let the book's darkness drive you to appreciate Christ as the perfect Judge and King
+
+## Recommended Resources
+
+### Commentaries
+
+**Best Overall**
+Judges by Daniel I. Block (NAC) - Masterful exposition that honestly addresses the book's difficult content while drawing out theological and practical insights.
+
+**For Beginners**
+Judges and Ruth by Barry G. Webb (NIVAC) - Accessible commentary that skillfully connects the cyclical pattern to contemporary spiritual struggles.
+
+**For In-Depth Study**
+Judges by Robert B. Chisholm Jr. (Kregel Exegetical Library) - Thorough exegetical work with excellent analysis of narrative technique and theological themes.
+
+**Technical/Academic**
+Judges by J. Clinton McCann (Westminster Bible Companion) - Careful Hebrew analysis with attention to literary structure and canonical context.

@@ -97,3 +97,19 @@ God is light and love; genuine believers demonstrate authentic faith through rig
 - Develop assurance of salvation by observing these evidences of genuine faith in your life (1 John 5:13)
 - Meditate on God's nature as both light (holy) and love (gracious) - let this dual truth shape your understanding of relationship with Him
 - Practice abiding in Christ by staying connected through prayer, Scripture, and obedience - this produces spiritual fruitfulness (1 John 2:28)
+
+## Recommended Resources
+
+### Commentaries
+
+**Best Overall**
+The Letters of John (Pillar New Testament Commentary) by Colin G. Kruse - Excellent treatment of John's tests of genuine faith with pastoral sensitivity.
+
+**For Beginners**
+The Epistles of John (Tyndale New Testament Commentaries) by John Stott - Clear, accessible exposition of assurance and authentic Christianity.
+
+**For In-Depth Study**
+1, 2, and 3 John (NIV Application Commentary) by Gary M. Burge - Outstanding at applying John's teaching on love and truth to contemporary Christian living.
+
+**Technical/Academic**
+The Epistles of John (NIGTC) by I. Howard Marshall - Comprehensive scholarly treatment with careful attention to theological and interpretive issues.

@@ -108,6 +108,25 @@ Philippians is a joyful letter written from prison, demonstrating that true joy 
 
 **For Spiritual Growth:**
 - Study the Christ hymn (2:5-11) regularly to understand the depths of Jesus' humility and exaltation, letting it shape your attitude
+- Meditate on Paul's "one thing I do" focus (3:13-14) to simplify your spiritual priorities and press forward without being burdened by past failures
+- Practice the discipline of rejoicing in difficulty, recognizing that joy in the Lord is a choice not dependent on circumstances
+- Apply Philippians 4:8 by consciously filling your mind with what is true, noble, right, pure, lovely, and admirable
+
+## Recommended Resources
+
+### Commentaries
+
+**Best Overall**
+The Letter to the Philippians (Pillar New Testament Commentary) by Gordon D. Fee - Outstanding blend of scholarship and pastoral warmth on Paul's joyful letter.
+
+**For Beginners**
+Philippians (Tyndale New Testament Commentaries) by Gerald F. Hawthorne - Clear, accessible exposition of joy, humility, and contentment in Christ.
+
+**For In-Depth Study**
+Philippians (NIV Application Commentary) by Frank Thielman - Excellent at applying Paul's teaching on joy and Christ-likeness to contemporary life.
+
+**Technical/Academic**
+Philippians (Baker Exegetical Commentary) by Moisés Silva - Thorough scholarly treatment with careful attention to Greek text and theological themes.
 - Press on toward spiritual maturity by forgetting past failures and straining toward what lies ahead - God is not finished with you yet
 - Cultivate gospel partnership by supporting kingdom work financially and prayerfully, following the Philippians' generous example
 - Evaluate what you consider gain or loss - count everything as loss compared to knowing Christ Jesus as Lord

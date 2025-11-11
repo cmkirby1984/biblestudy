@@ -102,3 +102,19 @@ Hebrews demonstrates Christ's absolute superiority over all Old Covenant element
 - Study Old Testament types and shadows to deepen your appreciation for Christ's perfect fulfillment of God's redemptive plan
 - Embrace discipline as evidence of God's fatherly love - it produces righteousness and peace in those trained by it (Hebrews 12:11)
 - Cultivate endurance by considering Christ's perseverance through suffering, letting His example strengthen you against weariness
+
+## Recommended Resources
+
+### Commentaries
+
+**Best Overall**
+The Letter to the Hebrews (Pillar New Testament Commentary) by Peter T. O'Brien - Excellent treatment of Christ's supremacy and high priesthood with theological depth.
+
+**For Beginners**
+Hebrews (Tyndale New Testament Commentaries) by Donald Guthrie - Clear, accessible guide to Christ's superiority over the Old Covenant.
+
+**For In-Depth Study**
+Hebrews (NIV Application Commentary) by George H. Guthrie - Outstanding at connecting the Old Testament background to contemporary Christian living.
+
+**Technical/Academic**
+The Epistle to the Hebrews (NIGTC) by Paul Ellingworth - Comprehensive scholarly treatment with extensive discussion of Greek text and Old Testament typology.

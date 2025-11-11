@@ -92,3 +92,19 @@ Israel transitions from judges to monarchy through Samuel's prophetic ministry, 
 - Examine your heart: Are you seeking to please God or impress people?
 - Learn from Saul's decline: Pride, disobedience, and consulting mediums led to his destruction
 - Study David's early years to understand how God prepares leaders through obscure faithfulness
+
+## Recommended Resources
+
+### Commentaries
+
+**Best Overall**
+1 Samuel by Robert D. Bergen (NAC) - Insightful narrative analysis with strong theological grounding and practical wisdom for understanding leadership.
+
+**For Beginners**
+1 Samuel by John Woodhouse (Preaching the Word) - Engaging, pastor-friendly exposition that makes complex narratives clear and applicable.
+
+**For In-Depth Study**
+1 Samuel by Dale Ralph Davis (Focus on the Bible) - Wonderfully written with memorable insights, combining scholarly depth with warmth and humor.
+
+**Technical/Academic**
+1 Samuel by P. Kyle McCarter Jr. (Anchor Bible) - Comprehensive philological study with extensive textual criticism and ancient Near Eastern background.

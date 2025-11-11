@@ -92,3 +92,19 @@ Ruth demonstrates God's providential care and gracious inclusion of all who trus
 - Reflect on how Christ is your Kinsman-Redeemer who paid the price to restore your inheritance
 - Study hesed (covenant loyalty) as a model for your relationships with God and others
 - Let Ruth's inclusion in Jesus' lineage encourage you about God's inclusive grace
+
+## Recommended Resources
+
+### Commentaries
+
+**Best Overall**
+Ruth by Robert L. Hubbard Jr. (NICOT) - Exceptionally thorough treatment of the narrative with outstanding insights into covenant loyalty and redemption themes.
+
+**For Beginners**
+Ruth by Iain M. Duguid (Reformed Expository Commentary) - Warm, Christ-centered exposition that beautifully connects Ruth's story to the gospel narrative.
+
+**For In-Depth Study**
+Judges and Ruth by Barry G. Webb (NIVAC) - Excellent work showing how Ruth's grace contrasts with Judges' chaos, with strong application.
+
+**Technical/Academic**
+Ruth by Frederic W. Bush (WBC) - Detailed linguistic and literary analysis with extensive treatment of ancient marriage customs and redemption law.

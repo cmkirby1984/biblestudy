@@ -99,3 +99,19 @@ Ephesians celebrates the church's exalted position in Christ and God's eternal p
 - Study the "one another" commands in Ephesians to understand how Christian community should function as Christ's body
 - Memorize and meditate on Ephesians 2:8-10 to maintain a clear understanding of salvation by grace that leads to good works
 - Recognize spiritual warfare in your struggles and learn to fight with God's weapons (prayer, truth, faith) rather than human methods
+
+## Recommended Resources
+
+### Commentaries
+
+**Best Overall**
+The Letter to the Ephesians (Pillar New Testament Commentary) by Peter T. O'Brien - Excellent blend of scholarly depth and pastoral application on Paul's majestic letter.
+
+**For Beginners**
+Ephesians (Tyndale New Testament Commentaries) by Francis Foulkes - Clear, accessible guide to understanding our identity and calling in Christ.
+
+**For In-Depth Study**
+Ephesians (NIV Application Commentary) by Klyne Snodgrass - Outstanding at connecting Paul's theology of the church to practical Christian living today.
+
+**Technical/Academic**
+Ephesians (Word Biblical Commentary) by Harold W. Hoehner - Comprehensive scholarly treatment with extensive discussion of Greek text and theological issues.

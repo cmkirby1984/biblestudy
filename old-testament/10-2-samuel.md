@@ -97,3 +97,19 @@ David establishes his kingdom and receives God's eternal covenant promise, but h
 - Reflect on how Christ fulfills the Davidic covenant as the eternal King
 - Learn that spiritual maturity doesn't make you immune to sin—maintain vigilance throughout life
 - Consider how sin affects not just you but your family and community
+
+## Recommended Resources
+
+### Commentaries
+
+**Best Overall**
+2 Samuel by Robert D. Bergen (NAC) - Excellent narrative analysis that honestly addresses David's failures while highlighting God's covenant faithfulness.
+
+**For Beginners**
+2 Samuel by John Woodhouse (Preaching the Word) - Engaging exposition that makes the complex political and family dynamics clear and spiritually applicable.
+
+**For In-Depth Study**
+2 Samuel by Dale Ralph Davis (Focus on the Bible) - Memorable, insightful commentary combining scholarly depth with pastoral warmth and practical wisdom.
+
+**Technical/Academic**
+2 Samuel by P. Kyle McCarter Jr. (Anchor Bible) - Comprehensive treatment with detailed textual analysis and extensive notes on ancient Near Eastern background.

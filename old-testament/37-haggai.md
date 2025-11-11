@@ -86,3 +86,19 @@ Haggai confronts post-exilic community for neglecting temple reconstruction whil
 - Trust that honoring God first leads to greater satisfaction than self-focused pursuits ever will
 - Recognize that God's presence, not impressive results, is what makes your work significant
 - Find hope in Christ as the fulfillment of Haggai's promise of greater glory in God's house
+
+## Recommended Resources
+
+### Commentaries
+
+**Best Overall**
+Haggai, Zechariah by Mark J. Boda (NIVAC) - Excellent work connecting post-exilic priorities to contemporary kingdom living.
+
+**For Beginners**
+Haggai and Zechariah by Joyce Baldwin (Tyndale) - Clear, accessible exposition that makes these prophets relevant and applicable.
+
+**For In-Depth Study**
+Haggai, Zechariah, Malachi by Eugene H. Merrill (Exegetical Commentary) - Solid evangelical work with strong exegetical foundation.
+
+**Technical/Academic**
+Haggai by Carol L. Meyers and Eric M. Meyers (Anchor Bible) - Comprehensive scholarly commentary with extensive historical and archaeological background.

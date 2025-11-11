@@ -100,3 +100,19 @@ The Day of the Lord has not yet come; before Christ returns, the man of lawlessn
 - Develop discernment by comparing all teaching to Scripture, especially dramatic claims about prophetic fulfillment or timing
 - Practice patient endurance, recognizing that faithfulness through trials proves genuine faith and brings glory to Christ
 - Balance expectation of Christ's return with responsible living - be ready for His coming while faithfully fulfilling your earthly duties
+
+## Recommended Resources
+
+### Commentaries
+
+**Best Overall**
+1 and 2 Thessalonians (Pillar New Testament Commentary) by Gene L. Green - Excellent balance of scholarship and pastoral application on Paul's eschatological letters.
+
+**For Beginners**
+1 and 2 Thessalonians (Tyndale New Testament Commentaries) by Leon Morris - Clear, accessible guide to understanding the Day of the Lord and standing firm in truth.
+
+**For In-Depth Study**
+1 and 2 Thessalonians (NIV Application Commentary) by Michael W. Holmes - Outstanding at connecting Paul's eschatological teaching to practical Christian faithfulness.
+
+**Technical/Academic**
+The First and Second Letters to the Thessalonians (NIGTC) by Charles A. Wanamaker - Comprehensive scholarly treatment with detailed discussion of the man of lawlessness and apocalyptic themes.

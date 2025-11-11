@@ -79,3 +79,19 @@ Genesis reveals God as the sovereign Creator who, despite humanity's rebellion, 
 - Study how God reveals Himself through different names and interactions—let this deepen your understanding of His character
 - Practice faith like Abraham: trust God's promises even when you can't see how they'll be fulfilled
 - Recognize patterns of sin and grace throughout Genesis to better understand your own need for redemption
+
+## Recommended Resources
+
+### Commentaries
+
+**Best Overall**
+Genesis by Kenneth A. Matthews (NAC) - Combines scholarly depth with pastoral insight, making complex theological themes accessible for study and teaching.
+
+**For Beginners**
+The Book of Genesis by John H. Sailhamer (EBC) - Clear, readable exposition that connects Genesis to the broader biblical narrative with practical applications.
+
+**For In-Depth Study**
+Genesis by Gordon J. Wenham (WBC) - Thorough examination of the Hebrew text with detailed analysis of literary structure and ancient Near Eastern background.
+
+**Technical/Academic**
+Genesis by Victor P. Hamilton (NICOT) - Exceptional treatment of Hebrew language and grammar with careful attention to theological implications and textual issues.

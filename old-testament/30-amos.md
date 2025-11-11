@@ -91,3 +91,19 @@ Amos, the shepherd prophet, confronts Israel's complacent religious establishmen
 - Study God's fierce passion for justice to develop similar conviction about fairness and compassion
 - Recognize that spiritual privilege increases accountability rather than decreasing it (Amos 3:2)
 - Cultivate prophetic courage to speak truth about injustice even when it's uncomfortable or unpopular
+
+## Recommended Resources
+
+### Commentaries
+
+**Best Overall**
+Amos by Shalom M. Paul (Hermeneia) - Outstanding scholarly commentary with exceptional treatment of social justice themes and Hebrew idioms.
+
+**For Beginners**
+The Message of Amos by J. A. Motyer (BST) - Excellent expository work that makes Amos's call for justice clear and challenging.
+
+**For In-Depth Study**
+Amos by Gary V. Smith (NAC) - Solid evangelical commentary with strong treatment of judgment and restoration themes.
+
+**Technical/Academic**
+Amos by Francis I. Andersen and David Noel Freedman (Anchor Bible) - Comprehensive scholarly analysis with detailed philological notes and ancient Near Eastern background.

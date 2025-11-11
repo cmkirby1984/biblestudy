@@ -97,3 +97,19 @@ Post-exilic retelling of Israel's history emphasizes David's righteous reign and
 - Reflect on how you're connected to God's people throughout history—you're part of an ongoing story
 - Consider what "temple" you're building: Are you investing in eternal or temporary things?
 - Learn from the emphasis on corporate worship—don't neglect gathering with God's people
+
+## Recommended Resources
+
+### Commentaries
+
+**Best Overall**
+1 Chronicles by Andrew E. Hill (NIVAC) - Excellent work connecting genealogies and temple worship to contemporary church life with scholarly depth.
+
+**For Beginners**
+1 Chronicles by Richard Pratt Jr. (Mentor) - Clear, readable exposition that makes genealogies meaningful and draws out practical spiritual lessons.
+
+**For In-Depth Study**
+1 Chronicles by J. G. McConville (Daily Study Bible) - Solid theological treatment showing how Chronicles addresses post-exilic community with hope.
+
+**Technical/Academic**
+1 Chronicles by Sara Japhet (Old Testament Library) - Comprehensive scholarly work with detailed analysis of text, sources, and theological themes.

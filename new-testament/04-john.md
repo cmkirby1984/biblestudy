@@ -101,3 +101,19 @@ John presents Jesus as the eternal Word, fully divine Son of God who became fles
 - Study Jesus' high priestly prayer (John 17) to understand His desires for your unity with Him and other believers
 - Reflect on the Prologue (John 1:1-18) regularly to grasp the wonder of the Incarnation—God becoming flesh
 - Practice believing without seeing, trusting Jesus' promise that those who believe without seeing are blessed (John 20:29)
+
+## Recommended Resources
+
+### Commentaries
+
+**Best Overall**
+The Gospel According to John (NICNT) by D.A. Carson - Widely considered the best contemporary commentary on John, combining scholarly depth with pastoral insight.
+
+**For Beginners**
+John (Tyndale New Testament Commentaries) by Gary M. Burge - Accessible introduction to John's Gospel with clear explanation of its theological depth.
+
+**For In-Depth Study**
+John (NIV Application Commentary) by Gary M. Burge - Excellent at connecting John's theology to practical Christian living with rich application.
+
+**Technical/Academic**
+The Gospel According to John (Pillar New Testament Commentary) by D.A. Carson - Technical yet readable, with extensive treatment of interpretive issues and Greek text.

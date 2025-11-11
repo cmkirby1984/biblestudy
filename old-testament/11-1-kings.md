@@ -96,3 +96,19 @@ Solomon's glorious reign and temple construction give way to idolatry and kingdo
 - Examine areas where you're compromising faith for relationship, success, or cultural acceptance
 - Study Elijah's faith to learn bold dependence on God in hostile environments
 - Reflect on how temple worship points to Christ as God's true dwelling place among His people
+
+## Recommended Resources
+
+### Commentaries
+
+**Best Overall**
+1 Kings by Paul R. House (NAC) - Comprehensive treatment balancing historical analysis with theological themes and contemporary application.
+
+**For Beginners**
+1 Kings by John W. Olley (Zondervan Illustrated Bible Backgrounds Commentary) - Highly accessible with excellent visual aids and cultural background information.
+
+**For In-Depth Study**
+1 Kings by Dale Ralph Davis (Wisdom and the Word) - Characterized by memorable insights, pastoral warmth, and practical application of complex narratives.
+
+**Technical/Academic**
+1 Kings by Mordechai Cogan (Anchor Bible) - Thorough philological analysis with extensive historical and archaeological notes on Solomon's reign and Elijah's ministry.

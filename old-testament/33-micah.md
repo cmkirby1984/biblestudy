@@ -85,3 +85,19 @@ Micah condemns social injustice and religious hypocrisy while announcing judgmen
 - Examine whether your spiritual life emphasizes external rituals over heart transformation and ethical living
 - Find hope in Christ as the fulfillment of Micah's prophecy of the ruler from Bethlehem who brings peace
 - Develop confidence in God's promise to forgive sin and show compassion (Micah 7:18-19)
+
+## Recommended Resources
+
+### Commentaries
+
+**Best Overall**
+Micah by Bruce K. Waltke (Eerdmans) - Masterful evangelical commentary with excellent integration of exegesis, theology, and application.
+
+**For Beginners**
+The Message of Micah by David Prior (BST) - Clear, accessible exposition that makes Micah's call for justice and mercy relevant today.
+
+**For In-Depth Study**
+Micah by Kenneth L. Barker (NAC) - Solid evangelical work with strong treatment of messianic prophecies and social justice themes.
+
+**Technical/Academic**
+Micah by Andersen and Freedman (Anchor Bible) - Comprehensive scholarly commentary with detailed philological analysis and historical background.

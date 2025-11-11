@@ -105,3 +105,19 @@ The Psalms provide inspired language for every aspect of relationship with God -
 - Study the Messianic psalms to see how they point to Christ and deepen your appreciation for Him
 - Let the imprecatory psalms teach you to bring desires for justice to God rather than taking revenge
 - Use Psalms in corporate worship—they were designed for God's people to sing together
+
+## Recommended Resources
+
+### Commentaries
+
+**Best Overall**
+Psalms by Tremper Longman III (Tyndale, 3 volumes) - Excellent balance of scholarly insight and devotional application across all 150 psalms.
+
+**For Beginners**
+The Message of the Psalms by J. Alec Motyer (BST) - Thematically organized, devotionally rich guide that makes the Psalter accessible and practical.
+
+**For In-Depth Study**
+Psalms by Willem VanGemeren (Expositor's Bible Commentary) - Comprehensive evangelical commentary with strong theological grounding and Christological focus.
+
+**Technical/Academic**
+Psalms by Peter C. Craigie, Marvin E. Tate, and Leslie C. Allen (WBC, 3 volumes) - Detailed scholarly analysis of Hebrew poetry, literary forms, and ancient Near Eastern context.

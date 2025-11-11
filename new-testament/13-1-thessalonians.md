@@ -95,3 +95,19 @@ Live holy lives as you eagerly await Christ's return, when deceased believers wi
 - Develop a practice of "praying without ceasing" - maintaining an ongoing conversation with God throughout your day
 - Cultivate brotherly love that extends beyond your immediate circle to all believers, expressing practical care for their needs
 - Learn to persevere joyfully under opposition, following the Thessalonians' example of receiving God's word with joy despite suffering
+
+## Recommended Resources
+
+### Commentaries
+
+**Best Overall**
+1 and 2 Thessalonians (Pillar New Testament Commentary) by Gene L. Green - Excellent balance of scholarship and pastoral application on Paul's eschatological letters.
+
+**For Beginners**
+1 and 2 Thessalonians (Tyndale New Testament Commentaries) by Leon Morris - Clear, accessible guide to Christ's return and holy living while we wait.
+
+**For In-Depth Study**
+1 and 2 Thessalonians (NIV Application Commentary) by Michael W. Holmes - Outstanding at connecting Paul's teaching on Christ's return to practical Christian living.
+
+**Technical/Academic**
+The First and Second Letters to the Thessalonians (NIGTC) by Charles A. Wanamaker - Comprehensive scholarly treatment with extensive discussion of eschatology and historical context.

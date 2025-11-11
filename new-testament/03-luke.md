@@ -107,3 +107,19 @@ Luke presents Jesus as the compassionate Savior whose mission extends to all peo
 - Study Jesus' parables about reversal (rich and poor, proud and humble) to examine where you need kingdom values to transform your heart
 - Practice persistent prayer like the widow before the judge, trusting God hears and will answer according to His wisdom
 - Let Jesus' compassion for outcasts challenge any prejudice or favoritism in your own heart, growing in Christ-like love for all people
+
+## Recommended Resources
+
+### Commentaries
+
+**Best Overall**
+The Gospel of Luke (NICNT) by Joel B. Green - Excellent balance of scholarship and readability with strong attention to Luke's theological themes.
+
+**For Beginners**
+Luke (Tyndale New Testament Commentaries) by Leon Morris - Clear, concise, and accessible guide to Luke's Gospel with practical insights.
+
+**For In-Depth Study**
+Luke (NIV Application Commentary) by Darrell L. Bock - Bridges ancient text and modern application with rich exegesis of Luke's unique material.
+
+**Technical/Academic**
+Luke (Baker Exegetical Commentary) by Darrell L. Bock (2 volumes) - Comprehensive scholarly treatment with extensive interaction with Greek text and sources.

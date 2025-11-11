@@ -107,3 +107,19 @@ Jude sounds urgent alarm about false teachers infiltrating the church who perver
 - Develop discernment by comparing all teaching against the "faith once for all delivered to the saints" (Jude 1:3)
 - Take comfort in the closing doxology - God is able to keep you from stumbling and present you blameless (Jude 1:24-25)
 - Balance firm doctrinal stance with merciful engagement toward those who are doubting or struggling
+
+## Recommended Resources
+
+### Commentaries
+
+**Best Overall**
+2 Peter and Jude (Baker Exegetical Commentary) by Gene L. Green - Excellent treatment of false teaching and contending for the faith.
+
+**For Beginners**
+2 Peter and Jude (Tyndale New Testament Commentaries) by Michael Green - Clear, accessible guide to defending apostolic truth against error.
+
+**For In-Depth Study**
+2 Peter and Jude (NIV Application Commentary) by Douglas J. Moo - Outstanding at applying Jude's urgent warnings to contemporary church challenges.
+
+**Technical/Academic**
+2 Peter and Jude (Word Biblical Commentary) by Richard Bauckham - Comprehensive scholarly treatment with extensive discussion of historical examples and judgment themes.

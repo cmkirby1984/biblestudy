@@ -92,3 +92,19 @@ Joshua demonstrates that God is completely faithful to His promises when His peo
 - Meditate on God's track record of faithfulness to strengthen your confidence in His current promises
 - Identify areas where you've compromised with "Canaanite" influences—entertainment, values, relationships
 - Study how God's unusual battle strategies teach dependence on Him rather than conventional wisdom
+
+## Recommended Resources
+
+### Commentaries
+
+**Best Overall**
+Joshua by David M. Howard Jr. (NAC) - Thoroughly researched work that faithfully addresses difficult questions about conquest while highlighting God's faithfulness.
+
+**For Beginners**
+Joshua by Kenneth O. Gangel (Holman) - Clearly written with helpful application sections, making the conquest narratives accessible and relevant.
+
+**For In-Depth Study**
+Joshua by Richard S. Hess (Tyndale) - Excellent balance of archaeological data, linguistic analysis, and theological insight with practical application.
+
+**Technical/Academic**
+Joshua by Trent C. Butler (WBC) - Detailed treatment of the Hebrew text with extensive notes on ancient Near Eastern background and textual issues.

@@ -113,3 +113,19 @@ Proverbs teaches that true wisdom begins with fearing the Lord and expresses its
 - Ask God for wisdom like Solomon did—He promises to give generously (James 1:5)
 - Study Proverbs 31 (both the wise sayings and the noble wife) as a model of godly character
 - Remember: these are general principles, not absolute promises—wisdom usually leads to blessing, but not always immediately
+
+## Recommended Resources
+
+### Commentaries
+
+**Best Overall**
+Proverbs by Bruce K. Waltke (NICOT, 2 volumes) - Magisterial work combining Hebrew scholarship, theological depth, and practical wisdom for contemporary life.
+
+**For Beginners**
+Proverbs by Tremper Longman III (Baker Commentary) - Accessible, well-organized exposition that clearly explains proverbs and applies them practically.
+
+**For In-Depth Study**
+Proverbs by Duane A. Garrett (NAC) - Solid evangelical commentary with excellent treatment of ancient Near Eastern wisdom and literary structure.
+
+**Technical/Academic**
+Proverbs by Michael V. Fox (Anchor Bible, 2 volumes) - Comprehensive scholarly analysis with detailed philological notes and extensive comparative ancient Near Eastern material.

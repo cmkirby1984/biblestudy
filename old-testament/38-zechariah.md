@@ -92,3 +92,19 @@ Zechariah encourages the post-exilic community through visions revealing God's s
 - Develop confidence that God will complete His purposes despite opposition—mountains become level ground before Him
 - Reflect on being chosen by God's grace ("a brand plucked from the fire") to fuel gratitude and humility
 - Prepare your heart for Christ's return by living in light of His promised reign over all the earth
+
+## Recommended Resources
+
+### Commentaries
+
+**Best Overall**
+Haggai, Zechariah by Mark J. Boda (NIVAC) - Outstanding work with excellent treatment of messianic themes and apocalyptic visions.
+
+**For Beginners**
+Haggai and Zechariah by Joyce Baldwin (Tyndale) - Remarkably clear exposition that makes Zechariah's complex visions accessible and spiritually enriching.
+
+**For In-Depth Study**
+Zechariah by Thomas Edward McComiskey (EBC) - Solid evangelical commentary with strong treatment of messianic prophecies and their New Testament fulfillment.
+
+**Technical/Academic**
+Zechariah by Carol L. Meyers and Eric M. Meyers (Anchor Bible, 2 volumes) - Comprehensive scholarly work with detailed analysis of apocalyptic imagery and historical background.

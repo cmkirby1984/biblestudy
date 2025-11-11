@@ -89,3 +89,19 @@ Malachi confronts post-exilic spiritual apathy, challenging corrupt worship, unf
 - Reflect on God's electing love as the foundation for your relationship with Him, not your performance
 - Prepare for Christ's return by living as one of those who "feared the LORD and honored his name" (Malachi 3:16)
 - Study how Malachi points forward to John the Baptist and Jesus, understanding the continuity between Old and New Testaments
+
+## Recommended Resources
+
+### Commentaries
+
+**Best Overall**
+Malachi by Andrew E. Hill (Anchor Bible) - Exceptional scholarly commentary with excellent treatment of post-exilic religious life and tithing.
+
+**For Beginners**
+Haggai, Zechariah, Malachi by Joyce Baldwin (Tyndale) - Clear, accessible exposition connecting Malachi's rebuke to contemporary spiritual life.
+
+**For In-Depth Study**
+Haggai, Zechariah, Malachi by Eugene H. Merrill (Exegetical Commentary) - Solid evangelical work with strong theological grounding and historical background.
+
+**Technical/Academic**
+Malachi by Beth Glazier-McDonald (Society of Biblical Literature) - Comprehensive scholarly treatment with detailed analysis of disputation format and theological themes.
