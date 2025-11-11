@@ -41,3 +41,17 @@
 ### Central Message
 
 Joshua demonstrates that God is completely faithful to His promises when His people trust and obey Him. Victory comes not from human strength but from following God's commands. The book challenges each generation to choose wholehearted devotion to God and warns against compromise with the world.
+
+## Practical Application
+
+**For Daily Living:**
+- **Be Strong and Courageous**: Face your challenges with God's strength—He commands courage because He promises His presence
+- **Choose Whom You Will Serve**: Like Joshua's challenge at Shechem, daily decide to serve God wholeheartedly, not cultural idols
+- **Obey Fully**: Partial obedience is disobedience—don't rationalize compromises in areas where God has spoken clearly
+- **Remember God's Faithfulness**: Create "memorial stones" to help you recall God's past deliverances
+- **Act on God's Promises**: Faith requires action—step into the "Jordan River" even before you see how God will work
+
+**For Spiritual Growth:**
+- Meditate on God's track record of faithfulness to strengthen your confidence in His current promises
+- Identify areas where you've compromised with "Canaanite" influences—entertainment, values, relationships
+- Study how God's unusual battle strategies teach dependence on Him rather than conventional wisdom

@@ -46,3 +46,18 @@
 ### Central Message
 
 2 Samuel presents David as both God's chosen king and a deeply flawed man. Through the Davidic covenant, God promises an eternal kingdom that finds ultimate fulfillment in Jesus Christ. The book demonstrates that even leaders after God's heart can fall into grievous sin, yet God's grace extends forgiveness while allowing consequences to teach both leaders and nations about the seriousness of sin.
+
+## Practical Application
+
+**For Daily Living:**
+- **Guard Against Temptation**: David's fall began with idle time and wandering eyes—avoid situations that expose you to temptation
+- **Confess Sin Quickly**: When confronted like David by Nathan, respond with genuine repentance rather than excuses
+- **Accept Consequences**: God forgives but consequences remain—face them with humility and trust in God's redemptive purpose
+- **Value Integrity**: David's greatest regrets came from moral failures, not military defeats—prioritize character over achievement
+- **Show Mercy Like God**: As David received mercy despite his sin, extend grace to others who fail
+
+**For Spiritual Growth:**
+- Study Psalm 51 (David's repentance) as a model for genuine confession and restoration
+- Reflect on how Christ fulfills the Davidic covenant as the eternal King
+- Learn that spiritual maturity doesn't make you immune to sin—maintain vigilance throughout life
+- Consider how sin affects not just you but your family and community

@@ -47,3 +47,18 @@
 ### Central Message
 
 Malachi confronts post-exilic spiritual apathy, challenging corrupt worship, unfaithful relationships, and robbing God through withholding tithes. The prophet uses dispute format to expose the people's rationalizations and call them to genuine covenant faithfulness. As the last Old Testament voice, Malachi promises the coming messenger (John the Baptist) who will prepare for the Lord's arrival and the day of judgment and salvation. The book ends with anticipation, preparing for 400 years of silence before Christ.
+
+## Practical Application
+
+**For Daily Living:**
+- **Give God Your Best**: Offer God excellence in worship, work, and service rather than leftovers or minimal effort (Malachi 1:8)
+- **Honor Marriage Commitments**: Treat your spouse with faithfulness and respect, recognizing marriage as a covenant before God (Malachi 2:14-16)
+- **Practice Generous Giving**: Test God's faithfulness by tithing and giving generously to His work (Malachi 3:10)
+- **Guard Your Words**: Speak carefully about God and others, avoiding cynicism and complaint
+- **Fear the LORD**: Cultivate reverent respect for God that shapes all your decisions and relationships
+
+**For Spiritual Growth:**
+- Examine your worship for signs of contempt—going through motions while your heart is elsewhere
+- Reflect on God's electing love as the foundation for your relationship with Him, not your performance
+- Prepare for Christ's return by living as one of those who "feared the LORD and honored his name" (Malachi 3:16)
+- Study how Malachi points forward to John the Baptist and Jesus, understanding the continuity between Old and New Testaments

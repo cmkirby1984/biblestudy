@@ -7,6 +7,7 @@ A comprehensive study guide covering all 66 books of the Bible with book overvie
 Each book includes:
 - **Book Overview**: Author, date, historical context, original audience, purpose, and genre
 - **Key Themes & Messages**: 3-5 major theological themes and the central message
+- **Practical Application**: How to apply the book's teachings to daily life and spiritual growth
 
 ## Old Testament (39 Books)
 

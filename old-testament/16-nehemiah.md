@@ -46,3 +46,18 @@
 ### Central Message
 
 Nehemiah demonstrates that godly leadership, persistent prayer, and courageous action can overcome tremendous obstacles to accomplish God's purposes. Physical restoration (walls) must be accompanied by spiritual renewal (covenant obedience). The book challenges leaders to integrity, calls communities to unity, and shows that God's work requires both dependence on Him and diligent human effort.
+
+## Practical Application
+
+**For Daily Living:**
+- **Pray and Work**: Like Nehemiah, combine prayer with action—"We prayed to our God and posted a guard"
+- **Lead with Integrity**: Nehemiah refused personal advantage for the sake of the people—lead sacrificially
+- **Address Injustice**: Don't ignore economic oppression or exploitation—confront it biblically
+- **Respond to Opposition**: Expect criticism when doing God's work; respond with prayer and perseverance
+- **Maintain Focus**: When enemies try to distract you, stay focused on the work God has given you
+
+**For Spiritual Growth:**
+- Develop Nehemiah's habit of "arrow prayers"—brief, frequent conversations with God throughout the day
+- Study Nehemiah's leadership: vision, organization, courage, and integrity
+- Learn from the pattern: external restoration requires internal renewal—fix your "walls" while renewing your heart
+- Let Nehemiah 8 (Scripture reading and response) model how to engage with God's Word in community

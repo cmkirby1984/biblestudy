@@ -46,3 +46,18 @@
 ### Central Message
 
 Joel uses a devastating locust plague as both judgment and warning of the greater Day of the LORD to come. The prophet calls for urgent, heartfelt repentance, promising that God's gracious nature may lead to relenting from judgment. Beyond judgment lies promise: God will pour out His Spirit on all people and restore His people with abundant blessing. The Day of the LORD brings both judgment for the rebellious and salvation for those who call on the Lord's name.
+
+## Practical Application
+
+**For Daily Living:**
+- **Respond to Wake-Up Calls**: Recognize crises and losses as opportunities to reassess your spiritual condition and return to God
+- **Rend Your Heart, Not Your Garments**: Practice genuine inner transformation rather than external religious displays (Joel 2:13)
+- **Call on the Lord's Name**: Make it a daily habit to actively seek God's help, knowing that "everyone who calls on the name of the LORD will be saved" (Joel 2:32)
+- **Gather for Corporate Prayer**: Join with other believers in times of crisis to seek God together, following Joel's call for community repentance
+- **Trust God's Restorative Power**: When facing devastating losses, believe that God can "restore the years the locusts have eaten" (Joel 2:25)
+
+**For Spiritual Growth:**
+- Cultivate urgency in your spiritual life—don't presume you have unlimited time to make things right with God
+- Reflect on God's gracious character (compassionate, slow to anger, abounding in love) to fuel both reverence and confidence
+- Recognize the Holy Spirit's empowering presence in your life as fulfillment of Joel's prophecy (Acts 2:16-21)
+- Prepare your heart for Christ's return by living with awareness that the Day of the LORD is coming

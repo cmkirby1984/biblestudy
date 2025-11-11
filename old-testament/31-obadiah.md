@@ -46,3 +46,18 @@
 ### Central Message
 
 Obadiah announces God's judgment on Edom for prideful betrayal of brother nation Judah in time of crisis. The brief prophecy demonstrates that God sees and judges violence against His people, that pride inevitably leads to humiliation, and that the Day of the LORD will bring justice to all nations. Despite present suffering, God promises His people will be restored and His kingdom will prevail.
+
+## Practical Application
+
+**For Daily Living:**
+- **Stand With Family in Crisis**: When relatives or close friends face trouble, actively support them rather than standing aloof or taking advantage
+- **Guard Against Pride**: Regularly examine areas where you feel self-sufficient or secure, remembering that "pride goes before destruction"
+- **Don't Gloat Over Others' Troubles**: Resist the temptation to feel superior or take pleasure when those you dislike face difficulties
+- **Recognize God Sees Everything**: Live with awareness that no betrayal or cruelty escapes God's notice, whether you're victim or perpetrator
+- **Trust God's Justice**: When wronged by others, trust that God will ultimately bring justice rather than seeking personal revenge
+
+**For Spiritual Growth:**
+- Examine your heart for schadenfreude (pleasure in others' misfortune) and root it out through repentance
+- Develop confidence in God's ultimate victory and kingdom establishment, even when circumstances seem to favor the wicked
+- Practice humility by acknowledging your dependence on God rather than your own strength, wisdom, or resources
+- Cultivate loyalty and compassion toward spiritual family, especially during their times of suffering or persecution

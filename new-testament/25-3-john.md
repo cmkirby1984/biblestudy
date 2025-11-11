@@ -45,3 +45,18 @@
 ### Central Message
 
 3 John is a personal letter commending Gaius for faithfully supporting traveling teachers despite opposition from Diotrephes, who seeks preeminence and rejects John's authority. The brief letter contrasts three individuals: hospitable Gaius, power-hungry Diotrephes, and well-testified Demetrius. John encourages imitating good rather than evil, supporting gospel workers through hospitality, and walking in truth. The epistle addresses church conflict over authority and shows that genuine faith produces generous support for gospel ministry, while pride seeks control and refuses legitimate authority.
+
+## Practical Application
+
+**For Daily Living:**
+- **Practice Hospitality**: Look for opportunities to support missionaries, church planters, and traveling ministers - welcome them into your home and help their ministry (3 John 1:5-8)
+- **Support Gospel Workers**: Financially and practically support those who go out for the sake of the Name, becoming co-workers in truth (3 John 1:7-8)
+- **Resist the Urge to Control**: Guard against Diotrephes' attitude - seeking preeminence and controlling others damages the church (3 John 1:9)
+- **Imitate What is Good**: When you see godly examples like Gaius or Demetrius, consciously model your behavior after theirs (3 John 1:11)
+- **Maintain Your Reputation**: Let your actions earn a good testimony from everyone - live so that truth itself testifies about you (3 John 1:12)
+
+**For Spiritual Growth:**
+- Examine your heart for pride and the desire for preeminence - cultivate humility and servant leadership instead
+- Find joy in other believers walking in truth, making their spiritual growth a source of personal delight (3 John 1:4)
+- Develop generosity toward gospel work, recognizing that supporting ministry is partnership in spreading truth
+- Choose your role models carefully - imitate those who demonstrate genuine faith through good deeds, not those who seek power (3 John 1:11)

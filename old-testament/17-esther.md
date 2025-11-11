@@ -46,3 +46,18 @@
 ### Central Message
 
 Esther reveals God's hidden yet powerful providence in protecting His people from destruction even when they live in pagan lands. Though God's name is never mentioned, His sovereign hand orchestrates events to deliver His people and judge their enemies. The book encourages faithfulness and courage, assuring believers that God places them where they are for His purposes.
+
+## Practical Application
+
+**For Daily Living:**
+- **Recognize Your Purpose**: You are where you are "for such a time as this"—look for opportunities to serve God's purposes
+- **Act Courageously**: When faced with moral choices, have Esther's courage to do right despite potential cost
+- **Trust Hidden Providence**: Even when you don't see God's hand, trust He's working behind the scenes
+- **Stand for Convictions**: Like Mordecai, maintain your principles even when it's inconvenient or costly
+- **Use Your Influence**: Leverage whatever position God gives you to help others and advance His purposes
+
+**For Spiritual Growth:**
+- Study how God works through "ordinary" circumstances—learn to see His providence in your daily life
+- Practice fasting and prayer when facing major decisions, as Esther did before approaching the king
+- Learn from Mordecai: conviction without compromise, boldness without boasting
+- Reflect on how God reverses evil plots—trust that those who oppose His people will ultimately fail

@@ -46,3 +46,18 @@
 ### Central Message
 
 Jonah reveals that God's compassion extends beyond Israel to include even their worst enemies when they repent. The book challenges ethnic pride and religious exclusivism, showing that God values people above nationalistic agendas. Through the reluctant prophet's story, readers learn that God's mercy is sovereign and universal, available to all who turn from sin, and that His people should share His heart for the lost rather than resenting His grace to others.
+
+## Practical Application
+
+**For Daily Living:**
+- **Obey God's Difficult Calls**: When God prompts you toward uncomfortable tasks or people, move toward them rather than fleeing like Jonah
+- **Extend Grace Beyond Your Comfort Zone**: Actively share God's love with people you naturally dislike or consider "undeserving"
+- **Check Your Motives in Ministry**: Examine whether you care more about people's souls or your own reputation and comfort
+- **Celebrate Others' Repentance**: Rejoice when those you disagree with turn to God, rather than resenting His mercy toward them
+- **Value People Over Things**: Prioritize human souls over personal comfort, convenience, or possessions (like Jonah's plant)
+
+**For Spiritual Growth:**
+- Identify your own "Nineveh"—people groups or individuals you'd rather see judged than saved—and repent of that attitude
+- Meditate on God's compassion for the lost to develop similar concern rather than self-righteous judgment
+- Recognize that you cannot outrun God's purposes; submission is better than resistance
+- Cultivate genuine repentance like the Ninevites—wholehearted turning from sin rather than superficial religious observance

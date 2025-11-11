@@ -46,3 +46,18 @@
 ### Central Message
 
 Micah condemns social injustice and religious hypocrisy while announcing judgment through exile. Yet the prophet's message includes hope: a ruler from Bethlehem will bring peace and restoration. True religion is summarized in acting justly, loving mercy, and walking humbly with God - ethics and worship inseparably linked. Despite deserved judgment, God will forgive sin and establish His kingdom of peace.
+
+## Practical Application
+
+**For Daily Living:**
+- **Act Justly**: Make fairness and righteousness practical habits—pay fair wages, keep promises, treat all people equitably regardless of status
+- **Love Mercy**: Cultivate a heart that delights in showing compassion, forgiveness, and kindness rather than merely tolerating it as duty
+- **Walk Humbly With God**: Practice daily dependence on God, acknowledging your limitations and His wisdom in every area of life (Micah 6:8)
+- **Integrate Faith and Ethics**: Ensure your religious activities (worship, prayer, Bible study) translate into ethical treatment of others
+- **Speak Truth to Power**: Follow Micah's example by addressing injustice even when it's uncomfortable or costs you socially
+
+**For Spiritual Growth:**
+- Memorize and regularly reflect on Micah 6:8 as a concise summary of what God requires
+- Examine whether your spiritual life emphasizes external rituals over heart transformation and ethical living
+- Find hope in Christ as the fulfillment of Micah's prophecy of the ruler from Bethlehem who brings peace
+- Develop confidence in God's promise to forgive sin and show compassion (Micah 7:18-19)

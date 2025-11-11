@@ -41,3 +41,17 @@
 ### Central Message
 
 Ruth demonstrates God's providential care and gracious inclusion of all who trust Him, regardless of ethnic background. Through covenant loyalty and faithful obedience, God brings blessing from tragedy and weaves outsiders into His redemptive plan. The story points forward to the greater Kinsman-Redeemer who brings ultimate restoration.
+
+## Practical Application
+
+**For Daily Living:**
+- **Practice Covenant Loyalty**: Show Ruth-like commitment to family, friends, and community even when it's costly
+- **Trust God's Providence**: Like Ruth gleaning in the field, faithfully do what's before you and trust God to guide details
+- **Show Redemptive Generosity**: Follow Boaz's example of going beyond legal requirements to show grace
+- **See God in Ordinary Moments**: God works through normal activities—be attentive to His hand in daily life
+- **Turn Tragedy to Hope**: With God, bitter experiences (Naomi's losses) can become pathways to blessing
+
+**For Spiritual Growth:**
+- Reflect on how Christ is your Kinsman-Redeemer who paid the price to restore your inheritance
+- Study hesed (covenant loyalty) as a model for your relationships with God and others
+- Let Ruth's inclusion in Jesus' lineage encourage you about God's inclusive grace

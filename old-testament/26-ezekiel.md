@@ -46,3 +46,18 @@
 ### Central Message
 
 Ezekiel emphasizes God's holiness, which demands judgment on persistent sin, while promising future restoration through heart transformation. God's glory departed from the corrupted temple but will return to dwell with a renewed people. Through the Spirit's work, God will give new hearts, raise the dead nation to life, and establish His eternal presence among His people in a purified new creation.
+
+## Practical Application
+
+**For Daily Living:**
+- **Own Your Choices**: Embrace personal responsibility for your actions rather than blaming family background, circumstances, or others (18:20)
+- **Pursue God's Presence**: Make time and space for worship that honors God's holiness—don't let spiritual practices become mere routine
+- **Expect Transformation**: Trust that God can give you a new heart and spirit; He can change desires and character, not just behavior (36:26)
+- **Speak Up for Justice**: Let Ezekiel's indictment of social injustice motivate you to address wrongs and advocate for the vulnerable
+- **Value Community Restoration**: Work toward reconciliation and healing in your church and relationships, reflecting God's desire for renewed community
+
+**For Spiritual Growth:**
+- Regularly examine whether you're truly worshiping God or have allowed subtle "idols" to creep into your spiritual life
+- Pray for a fresh experience of God's glory and presence—don't settle for spiritual dryness or mere knowledge about God
+- Study the vision of dry bones (chapter 37) as encouragement that God can revive what seems spiritually dead in your life or church
+- Reflect on how the Spirit's work brings new life, allowing this to shape your dependence on God rather than self-effort

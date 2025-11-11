@@ -46,3 +46,18 @@
 ### Central Message
 
 Amos, the shepherd prophet, confronts Israel's complacent religious establishment with God's demand for social justice. True worship must be accompanied by ethical treatment of others, especially the vulnerable. Religious ritual without righteousness is detestable to God. Though judgment is coming for persistent injustice and hypocrisy, God promises eventual restoration and blessing for a purified remnant.
+
+## Practical Application
+
+**For Daily Living:**
+- **Champion the Vulnerable**: Actively seek opportunities to defend and assist those who lack power, voice, or resources in your community
+- **Practice Business Integrity**: Ensure honesty in all transactions—fair wages, accurate measurements, truthful advertising—rejecting shortcuts that exploit others
+- **Let Justice Flow**: Make justice a consistent pattern in your life, not an occasional gesture, like Amos's "ever-flowing stream" (Amos 5:24)
+- **Examine Your Privilege**: Recognize how your advantages create responsibility to serve others rather than mere entitlement to comfort
+- **Align Worship with Ethics**: Before engaging in religious activities, ensure your treatment of others reflects God's character
+
+**For Spiritual Growth:**
+- Confront your own religious hypocrisy by examining whether your spiritual practices lead to genuine transformation in how you treat others
+- Study God's fierce passion for justice to develop similar conviction about fairness and compassion
+- Recognize that spiritual privilege increases accountability rather than decreasing it (Amos 3:2)
+- Cultivate prophetic courage to speak truth about injustice even when it's uncomfortable or unpopular
