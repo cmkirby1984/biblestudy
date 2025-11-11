@@ -2,12 +2,24 @@
 
 A comprehensive study guide covering all 66 books of the Bible with book overviews and key themes.
 
-## Structure
+## What This Guide Includes
 
-Each book includes:
-- **Book Overview**: Author, date, historical context, original audience, purpose, and genre
-- **Key Themes & Messages**: 3-5 major theological themes and the central message
-- **Practical Application**: How to apply the book's teachings to daily life and spiritual growth
+### For Each Book (All 66 Books):
+- **Book Overview** - Author, date, historical context, original audience, purpose, and genre
+- **One-Sentence Summary** - Concise, memorable overview
+- **Book Structure** - Outline showing major divisions and flow
+- **Key Verses** - 2-3 most important verses with full text and significance
+- **Key Themes & Messages** - 3-5 major theological themes and the central message
+- **Practical Application** - Concrete applications for daily living and spiritual growth
+- **Recommended Commentaries** - Curated resources from beginner to academic level
+
+### Additional Study Resources:
+- **Quick Reference Tables** - All books summarized in scannable tables
+- **Thematic Index** - 80+ topics showing where themes appear throughout Scripture
+- **Character Index** - 39 major biblical figures with lessons from their lives
+- **Biblical Timeline** - Chronological overview of Bible history and book dates
+- **Maps & Geography** - Biblical locations, distances, and map resources
+- **Printing Guide** - Instructions for creating PDFs and print versions
 
 ## Old Testament (39 Books)
 
@@ -101,13 +113,24 @@ Each book includes:
 
 ---
 
-## Quick Reference
+## Study Resources
 
+### Quick Reference
 Need a fast overview? Check out our **[Quick Reference Tables](quick-reference/README.md)**:
-- [Old Testament Overview](quick-reference/old-testament-overview.md) - All 39 books at a glance
-- [New Testament Overview](quick-reference/new-testament-overview.md) - All 27 books at a glance
+- **[Old Testament Overview](quick-reference/old-testament-overview.md)** - All 39 books at a glance
+- **[New Testament Overview](quick-reference/new-testament-overview.md)** - All 27 books at a glance
 
 Perfect for printing, teaching prep, or quick lookup!
+
+### Indexes & Guides
+Enhance your study with these comprehensive resources:
+- **[Thematic Index](indexes/thematic-index.md)** - Find all verses and books on topics like faith, grace, justice, prayer, and 80+ more themes
+- **[Character Index](indexes/character-index.md)** - Study 39 major biblical figures with their key traits, events, and lessons
+- **[Biblical Timeline](timeline.md)** - Chronological overview showing when books were written and historical periods
+
+### Study Tools
+- **[Maps & Geography](resources/maps.md)** - Biblical geography, key locations, distances, and map resources
+- **[Printing Guide](resources/printing-guide.md)** - Instructions for creating print-friendly versions and PDFs
 
 ---
 
