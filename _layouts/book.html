@@ -3,9 +3,9 @@ layout: default
 ---
 
 <nav class="breadcrumb">
-    <a href="/">Home</a>
+    <a href="{{ '/' | relative_url }}">Home</a>
     <span class="separator">›</span>
-    <a href="{{ page.testament | downcase | replace: ' ', '-' }}/">{{ page.testament }}</a>
+    <a href="{{ page.testament | downcase | replace: ' ', '-' | prepend: '/' | append: '/' | relative_url }}">{{ page.testament }}</a>
     <span class="separator">›</span>
     <span>{{ page.title }}</span>
 </nav>
