@@ -1,3 +1,7 @@
+---
+title: 3 John
+---
+
 # 3 John
 
 ## Book Overview

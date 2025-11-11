@@ -1,3 +1,7 @@
+---
+title: 1 Peter
+---
+
 # 1 Peter
 
 ## Book Overview

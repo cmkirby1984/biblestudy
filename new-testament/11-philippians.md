@@ -1,3 +1,7 @@
+---
+title: Philippians
+---
+
 # Philippians
 
 ## Book Overview

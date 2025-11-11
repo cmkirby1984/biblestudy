@@ -1,3 +1,7 @@
+---
+title: Nahum
+---
+
 # Nahum
 
 ## Book Overview

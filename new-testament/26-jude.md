@@ -1,3 +1,7 @@
+---
+title: Jude
+---
+
 # Jude
 
 ## Book Overview

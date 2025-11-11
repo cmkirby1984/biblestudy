@@ -1,3 +1,7 @@
+---
+title: Printing Guide
+---
+
 # Printing Guide
 
 Instructions for creating print-friendly versions of this Bible study guide.

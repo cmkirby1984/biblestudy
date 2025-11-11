@@ -1,3 +1,7 @@
+---
+title: Habakkuk
+---
+
 # Habakkuk
 
 ## Book Overview

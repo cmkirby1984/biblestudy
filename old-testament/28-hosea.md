@@ -1,3 +1,7 @@
+---
+title: Hosea
+---
+
 # Hosea
 
 ## Book Overview

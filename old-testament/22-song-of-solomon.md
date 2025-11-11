@@ -1,3 +1,7 @@
+---
+title: Song of Solomon (Song of Songs)
+---
+
 # Song of Solomon (Song of Songs)
 
 ## Book Overview

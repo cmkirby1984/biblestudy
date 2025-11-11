@@ -1,3 +1,7 @@
+---
+title: Daniel
+---
+
 # Daniel
 
 ## Book Overview

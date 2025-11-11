@@ -1,3 +1,7 @@
+---
+title: 1 Chronicles
+---
+
 # 1 Chronicles
 
 ## Book Overview

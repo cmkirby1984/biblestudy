@@ -1,3 +1,7 @@
+---
+title: 2 John
+---
+
 # 2 John
 
 ## Book Overview

@@ -1,3 +1,7 @@
+---
+title: Old Testament Quick Reference
+---
+
 # Old Testament Quick Reference
 
 A one-page overview of all 39 Old Testament books.

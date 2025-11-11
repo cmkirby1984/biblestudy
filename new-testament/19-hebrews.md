@@ -1,3 +1,7 @@
+---
+title: Hebrews
+---
+
 # Hebrews
 
 ## Book Overview

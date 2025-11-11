@@ -1,3 +1,7 @@
+---
+title: Galatians
+---
+
 # Galatians
 
 ## Book Overview

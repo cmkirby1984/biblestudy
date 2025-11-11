@@ -1,3 +1,7 @@
+---
+title: 2 Corinthians
+---
+
 # 2 Corinthians
 
 ## Book Overview

@@ -1,3 +1,7 @@
+---
+title: Esther
+---
+
 # Esther
 
 ## Book Overview

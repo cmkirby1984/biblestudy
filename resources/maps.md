@@ -1,3 +1,7 @@
+---
+title: Biblical Geography & Maps
+---
+
 # Biblical Geography & Maps
 
 Understanding the geography of Bible lands enriches your study by providing context for events, journeys, and narratives.

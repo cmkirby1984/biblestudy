@@ -1,3 +1,7 @@
+---
+title: Isaiah
+---
+
 # Isaiah
 
 ## Book Overview

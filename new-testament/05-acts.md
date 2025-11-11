@@ -1,3 +1,7 @@
+---
+title: Acts
+---
+
 # Acts
 
 ## Book Overview

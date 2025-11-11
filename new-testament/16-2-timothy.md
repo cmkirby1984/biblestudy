@@ -1,3 +1,7 @@
+---
+title: 2 Timothy
+---
+
 # 2 Timothy
 
 ## Book Overview

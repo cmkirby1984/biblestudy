@@ -1,3 +1,7 @@
+---
+title: Proverbs
+---
+
 # Proverbs
 
 ## Book Overview

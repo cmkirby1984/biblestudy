@@ -1,3 +1,7 @@
+---
+title: Deuteronomy
+---
+
 # Deuteronomy
 
 ## Book Overview

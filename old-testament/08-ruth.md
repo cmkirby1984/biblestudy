@@ -1,3 +1,7 @@
+---
+title: Ruth
+---
+
 # Ruth
 
 ## Book Overview

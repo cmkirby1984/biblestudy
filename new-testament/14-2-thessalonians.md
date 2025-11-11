@@ -1,3 +1,7 @@
+---
+title: 2 Thessalonians
+---
+
 # 2 Thessalonians
 
 ## Book Overview

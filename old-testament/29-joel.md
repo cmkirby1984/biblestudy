@@ -1,3 +1,7 @@
+---
+title: Joel
+---
+
 # Joel
 
 ## Book Overview

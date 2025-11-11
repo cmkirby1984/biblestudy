@@ -1,3 +1,7 @@
+---
+title: Micah
+---
+
 # Micah
 
 ## Book Overview

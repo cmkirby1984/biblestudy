@@ -1,3 +1,7 @@
+---
+title: Jeremiah
+---
+
 # Jeremiah
 
 ## Book Overview

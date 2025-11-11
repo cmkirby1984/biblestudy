@@ -1,3 +1,7 @@
+---
+title: Ezekiel
+---
+
 # Ezekiel
 
 ## Book Overview

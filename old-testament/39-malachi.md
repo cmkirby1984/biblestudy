@@ -1,3 +1,7 @@
+---
+title: Malachi
+---
+
 # Malachi
 
 ## Book Overview

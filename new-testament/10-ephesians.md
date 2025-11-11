@@ -1,3 +1,7 @@
+---
+title: Ephesians
+---
+
 # Ephesians
 
 ## Book Overview

@@ -1,3 +1,7 @@
+---
+title: Ezra
+---
+
 # Ezra
 
 ## Book Overview

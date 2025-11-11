@@ -1,3 +1,7 @@
+---
+title: Psalms
+---
+
 # Psalms
 
 ## Book Overview

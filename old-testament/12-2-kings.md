@@ -1,3 +1,7 @@
+---
+title: 2 Kings
+---
+
 # 2 Kings
 
 ## Book Overview

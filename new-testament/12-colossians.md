@@ -1,3 +1,7 @@
+---
+title: Colossians
+---
+
 # Colossians
 
 ## Book Overview

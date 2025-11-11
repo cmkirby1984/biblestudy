@@ -1,3 +1,7 @@
+---
+title: 1 John
+---
+
 # 1 John
 
 ## Book Overview

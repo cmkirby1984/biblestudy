@@ -1,3 +1,7 @@
+---
+title: Biblical Timeline
+---
+
 # Biblical Timeline
 
 A chronological overview of Bible history, showing when books were written and the major periods they cover.

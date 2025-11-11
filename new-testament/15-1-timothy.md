@@ -1,3 +1,7 @@
+---
+title: 1 Timothy
+---
+
 # 1 Timothy
 
 ## Book Overview

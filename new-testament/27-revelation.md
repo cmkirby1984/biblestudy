@@ -1,3 +1,7 @@
+---
+title: Revelation
+---
+
 # Revelation
 
 ## Book Overview

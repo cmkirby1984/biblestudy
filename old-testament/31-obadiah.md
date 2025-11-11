@@ -1,3 +1,7 @@
+---
+title: Obadiah
+---
+
 # Obadiah
 
 ## Book Overview

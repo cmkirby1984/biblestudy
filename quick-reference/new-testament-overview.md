@@ -1,3 +1,7 @@
+---
+title: New Testament Quick Reference
+---
+
 # New Testament Quick Reference
 
 A one-page overview of all 27 New Testament books.

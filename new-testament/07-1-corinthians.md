@@ -1,3 +1,7 @@
+---
+title: 1 Corinthians
+---
+
 # 1 Corinthians
 
 ## Book Overview

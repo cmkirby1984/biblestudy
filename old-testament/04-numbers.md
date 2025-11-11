@@ -1,3 +1,7 @@
+---
+title: Numbers
+---
+
 # Numbers
 
 ## Book Overview

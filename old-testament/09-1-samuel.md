@@ -1,3 +1,7 @@
+---
+title: 1 Samuel
+---
+
 # 1 Samuel
 
 ## Book Overview

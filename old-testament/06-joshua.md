@@ -1,3 +1,7 @@
+---
+title: Joshua
+---
+
 # Joshua
 
 ## Book Overview

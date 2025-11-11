@@ -1,3 +1,7 @@
+---
+title: 2 Chronicles
+---
+
 # 2 Chronicles
 
 ## Book Overview

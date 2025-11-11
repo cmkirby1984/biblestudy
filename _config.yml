@@ -27,20 +27,10 @@ exclude:
   - README.md
   - DEPLOYMENT.md
 
-# Collections
-collections:
-  old_testament:
-    output: true
-    permalink: /old-testament/:name/
-  new_testament:
-    output: true
-    permalink: /new-testament/:name/
-
-# Defaults
+# Defaults for pages
 defaults:
   - scope:
       path: ""
-      type: "pages"
     values:
       layout: "default"
   - scope:

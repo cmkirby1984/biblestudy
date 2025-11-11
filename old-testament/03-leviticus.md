@@ -1,3 +1,7 @@
+---
+title: Leviticus
+---
+
 # Leviticus
 
 ## Book Overview

@@ -1,3 +1,7 @@
+---
+title: Biblical Character Index
+---
+
 # Biblical Character Index
 
 A comprehensive guide to major biblical figures, their stories, and the lessons we can learn from their lives.

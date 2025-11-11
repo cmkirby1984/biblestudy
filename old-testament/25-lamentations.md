@@ -1,3 +1,7 @@
+---
+title: Lamentations
+---
+
 # Lamentations
 
 ## Book Overview

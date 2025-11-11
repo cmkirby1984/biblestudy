@@ -1,3 +1,7 @@
+---
+title: Thematic Index
+---
+
 # Thematic Index
 
 A comprehensive topical index showing where major themes appear throughout the Bible. Use this guide for topical studies across multiple books.

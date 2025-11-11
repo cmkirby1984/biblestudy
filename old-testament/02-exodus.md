@@ -1,3 +1,7 @@
+---
+title: Exodus
+---
+
 # Exodus
 
 ## Book Overview

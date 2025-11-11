@@ -1,3 +1,7 @@
+---
+title: Amos
+---
+
 # Amos
 
 ## Book Overview

@@ -1,3 +1,7 @@
+---
+title: 2 Peter
+---
+
 # 2 Peter
 
 ## Book Overview

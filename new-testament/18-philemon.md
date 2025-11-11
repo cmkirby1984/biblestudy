@@ -1,3 +1,7 @@
+---
+title: Philemon
+---
+
 # Philemon
 
 ## Book Overview
